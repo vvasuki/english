@@ -6,8 +6,8 @@ publishDir = "build_github"
 disablePathToLower = true
 
 [params]
-  githubEditMePathBase = "https://github.com/vvasuki/english/edit/hugo-source/content/"
-  contactLink = "https://github.com/vvasuki/english/issues/new"
+  githubEditMePathBase = "https://github.com/vishvAsa/english/edit/hugo-source/content/"
+  contactLink = "https://github.com/vishvAsa/english/issues/new"
   fullSearchURL = "/full_search"
   env = "production"
   disqusShortcode = "vvasuki-site"
