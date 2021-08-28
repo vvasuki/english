@@ -2,7 +2,7 @@
 title = "Doctor and Dakini"
 +++
 
-Source: Ateenriyo on Twitter.
+Source: Ateendriyo on Twitter.
 
 The new doctor woke up with a start and looked outside his window to see the fog covered mountains. Arun had not even spent a few months sitting back in Dehradun when he had been posted to Joshimath district. He had recently joined the state medical services, and despite his parent's remonstrations, he had wanted to serve in the state far flung, rural areas. The state health services had only just launched a small scheme, where doctors could serve for short periods in difficult to reach areas, adn then return to their private practices.
 
