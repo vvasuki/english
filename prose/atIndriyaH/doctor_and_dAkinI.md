@@ -2,6 +2,8 @@
 title = "Doctor and Dakini"
 +++
 
+Source: Ateenriyo on Twitter.
+
 The new doctor woke up with a start and looked outside his window to see the fog covered mountains. Arun had not even spent a few months sitting back in Dehradun when he had been posted to Joshimath district. He had recently joined the state medical services, and despite his parent's remonstrations, he had wanted to serve in the state far flung, rural areas. The state health services had only just launched a small scheme, where doctors could serve for short periods in difficult to reach areas, adn then return to their private practices.
 
 Arun had expected that he'll be sent off somewhere in the low lying Terai region of Garhwal, close to home. Instead, he had received orders to reach an isolated village, Narain Nagar, in Joshimath district. The initial days had been pleasant to say the least. Very few people actually lived in the village, which lay right on a triangular cliff, below which two rivers merged and moved their way down to Joshimath. With few patients, and with fewer cares, Arun adjusted to village life, eating food at the small govt officials mess, and talking long walks during the daytime. He had a passion for trekking, which he joked was an infection he picked up from one of his friends who was an army cadet in Dehradun. Hardly any trekking trail had remained unvisited, and so, Arun liked Narain Nagar's isolated trekking spots.
