@@ -16,7 +16,18 @@ What I like the most about Vivekananda is that he made his spiritual quest a par
 
 
 ## Clown
-a friend of mine rejected to submit his dissertation and instead decided to be an entertainer. he sang, played guitar, and sometimes became a clown and cherished children in their birthday parties. i wanted to see him before leaving town when i took my first big job. there i found him in a park, cheering up children with his painted face and funny sounds. he graciously hugged me and whispered, 'do not forget we are all in entertainment business!'
+A friend of mine rejected to submit his dissertation and instead decided to be an entertainer. He sang, played guitar, and sometimes became a clown and cherished children in their birthday parties. I wanted to see him before leaving town when I took my first big job. There I found him in a park, cheering up children with his painted face and funny sounds. he graciously hugged me and whispered, 'do not forget we are all in entertainment business!'
 
-when Vardhamana walked out of Vaishali barefoot, he must have had the zeal to learn, to discover, and not to be entertained. when he stood up in deep meditation for years and years, i do not believe anybody cheered or clapped. may be he soaked all the desire in humanity to learn. all we want today is carnival. without Bakhtin, we would not even know what we really want.
+When Vardhamana walked out of Vaishali barefoot, he must have had the zeal to learn, to discover, and not to be entertained. when he stood up in deep meditation for years and years, i do not believe anybody cheered or clapped.May be he soaked all the desire in humanity to learn. all we want today is carnival. without Bakhtin, we would not even know what we really want.
 
+## Dialogue
+I still love Udayana. For, look at his way of reasoning: parānabhyupagamena hetvasiddheś ca | The reason you give is unfounded because that is not accepted by the other party.+++(5)+++
+
+Today's religious dialogues and even broader social conversations rest on private reasoning; you say it is P because it is Y but only you know why Y should confirm P. And if someone asks for concomitance (vyāpti), you pull out Gun.
+
+## Readers and Writers
+Eco was brutally honest when he said, "You know, I don't read, I write." I myself am struggling in between. It is not a lack of devotion on reading, neither is the loss in appetite to write. These two hungers are insatiable. You can convince Quixote or even Trump that they have saved the world from the monster windmill but you cannot convince yourself that you have read enough if you are a reader, or have written enough, if you like to write.+++(5)+++
+
+My teachers did not train me to write. Our job was to read and our teachers' task was to create passionate readers.+++(5)+++ When someone approached my grand teacher Padma Prasad Bhattarai to write on Nyaya, his response was: first read all that is written and then come back to me with requests like that. And my teachers like Mukunda and Dirgharaj and Bidur never tired of citing their teacher for the virtue in not writing. Kabir went the other direction, he saw meaninglessness in reading. He never said anything about writing though. A friend of mine recently caught me while reading and cited Kabir: nobody has been wise by reading books. He did not answer though when I asked why is he reading Kabir then?
+
+Any way, readers seem to have a different dharma to uphold than the writers. Readers admire the pearl but writers cut it out of the shell. Readers can afford to not read some writers but writers have to read not just what they like but they have to particularly read what they do not like.+++(4)+++ Writers are like Shiva who relish in their enclosure, enchanted with their romantic thoughts, while readers are like Agni the fire that receives the first seeds of wisdom or the waters that nourish ideas so that the children they raise can have multiple heads.+++(4)+++
