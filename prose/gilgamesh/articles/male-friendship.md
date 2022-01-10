@@ -1,0 +1,29 @@
++++
+title = "Male friendship"
++++
+
+The Epic of Gilgamesh is only major Mesopotamian literary text whose author is named. Reading the text, it’s easy to see why. Whoever he may have been, Sîn-Lēqi-Unnunni possessed the key quality that unites great writers throughout the ages - he understood people. Good writing must rest on particular human truths. In Gilgamesh, we see many such truths beautifully rendered. In this thread, I hope to examine just one of them: the transcendent power of male friendship.
+
+Gilgamesh is the son of a king and a goddess, described as “two thirds god, one third man”, who abuses his subjects purely because he can. They appeal to the gods for aid - but crucially, their prayer is not to be rid of Gilgamesh, but almost that Gilgamesh be “tamed”.
+
+Anu, the Sky, king of the gods, devises a unique answer to the Gilgamesh question. Rather than punish Gilgamesh, he beseeches the goddess Aruru - who created Gilgamesh as a unique being among men - create another that can be his equal. This is our first lesson on the theme of friendship. Gilgamesh’s initial tyranny is a consequence of nihilistic boredom. Without an equal to spur him to greater things, his life lacks challenge or purpose. This lesson is explained to Gilgamesh in the form of prophetic dreams.
+
+The assembly of Uruk seems to intuitively understand the significance of their friendship. When the two embark on an expedition together, they entrust Gilgamesh, their king, to his friend and counsellor so that he can in turn entrust the king back to them on his return.
+
+The pair’s heroic deeds are well known, and the text makes it explicit that neither could accomplished them alone. Throughout their expedition to the cedar forests of the Lebanon, the two act to assuage each others’ doubts and fears as to the magnitude of the task ahead of them. When they have the forest’s divine protector defeated at their feet, Enkidu’s words to him are not a victory lap, but a hymn of praise to the virtue of friendship and the power it creates.
+
+Before we go on, we must stop to consider our heroes’ relationships with women. For our purposes, there are 3 significant female characters in the text: the sacred prostitute Shamhat, Gilgamesh’s mother Ninsun, and Ishtar, the goddess of female lust. It takes a week before Enkidu can even talk - and another to understand why he would want to come into Civilisation for any other reason than to dominate it. Later, when Enkidu curses Shamhat for bringing about his doom, Shamash the sun god points out that Shamhat’s intervention also brought him his greatest pleasure - his friendship with Gilgamesh. Women, through sex, play a vital role in readying men for civilization and friendship.
+
+Ninsun’s relationship with both her son and with Enkidu is interesting. She serves as an interpreter for Gilgamesh’s dreams, and becomes an adoptive mother to Enkidu, “legitimising” her son’s great friend as his brother, in a sense completing the process begun by Shamhat. Ninsun also gives us an interesting prayer and injunction before Gilgamesh and Enkidu set out on their journey together. As a mother, she knows she can’t stop her son fulfilling his drive to adventure - she can merely do her best to ensure he’s well assisted.
+
+Ishtar attempts to seduce Gilgamesh on his return from the Cedar forest, and he rebukes her without hesitation. When we met him, Gilgamesh was a serial womaniser, it’s clear his association with Enkidu has put paid to any simp tendencies he might have once had. This episode tells us a lot about what we can expect from overly amorous women. In her rage, Ishtar demands that Anu allow her to destroy Uruk in revenge. The indulgent Anu gives her the rampaging Bull of Heaven, and Gilgamesh and Enkidu kill it without any divine aid.
+
+
+This the culmination of the pair’s deeds. After they slay the bull, Anu and Enlil decree that Enkidu must die as punishment. Both men react to this news in a way that tells us exactly where their priorities lie. A full tablet of the epic is dedicated to Gilgamesh’s mourning. He commissions Uruk’s craftsmen to create a great statue of Enkidu, as would normally be made to honour a god in their temple. These usually carry elaborate, boastful names. Enkidu’s statue is simply “My Friend”.
+
+
+Enkidu’s death forms the catalyst for the greatest of Gilgamesh’s labours - seeking out Uta-Napishtim, the now-immortal only survivor of the great flood. His friend’s death has made Gilgamesh realise his own mortality, and grow to fear it. But it’s clear that his quest is motivated less by his own fear of death than it is his feeling of powerlessness in the face of losing the only thing that has ever truly mattered to him. Even in death, Enkidu moves Gilgamesh on to greater things.
+
+Gilgamesh would have been almost as exotic a figure to most of the people reading of his stories as he is to us. He probably lived between 2800BC and 2600BC. He was the subject of heroic songs by 2300BC. The “epic” as we know it was finalised by Sîn-Lēqi-Unnunni 1000 years later. It was still being read when Nineveh was abandoned, 700 years after that. But in all versions of the story, one thing is clear - even though Gilgamesh is the greatest man to ever live, he wouldn’t have been half the man he was able to become thanks to his closest companion.+++(4)+++
+
+Friendship between men - fully developed - is a bond that catalyses great deeds that would simply not be possible otherwise, and transcends life and death. Your friends are “the axe in your hand and the shield at your front.”+++(4)+++ “Who can compare with this man in his excellence? Like Gilgamesh, what man can say “I am king!” None of us can - until we have had a friend like Enkidu.
