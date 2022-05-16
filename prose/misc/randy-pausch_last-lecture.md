@@ -14,6 +14,7 @@ Carnegie Mellon Professor Randy Pausch’s last lecture titled “Really Achievi
 
 
 ## Introduction
+[responding to a standing ovation] Make me earn it. [laughter]
 
 It’s wonderful to be here. What Indira didn’t tell you is that this lecture series used to be called “The Last Lecture.”
 
@@ -652,3 +653,15 @@ Have you figured out the second head fake?
 The talk’s not for you. It’s for my kids.+++(5)+++
 
 Thank you all. Good night.
+
+
+## Andy Van Dam's account
+Oh how I love having the last word. [applause] But to have to go on after that fabulous show, I don’t know whether that was good planning. Well I started in Brown in 1965 and it has been my pleasure and great joy not just to teach thousands of undergraduates and some graduates, but also to work one-on-one with a couple hundred of them. And over 35 have followed me into teaching I’m proud to say. 
+
+Out of those best and brightest it was very clear that Randy would stand out. He showed great promise early on and a passion about our field and about helping others that you’ve seen amply demonstrated today. It was matched by fierce determination and by persistence in the face of all brick wall odds. And you’ve heard a lot about that and seen that demonstrated as he fights this terrible disease. 
+
+Like the elephant’s child, however, he was filled with satiable curiosity, you remember that. And what happened to the elephant’s child, he got spanked by all of his relations, and you’ve heard some of that. He was brash, he had an irrepressible, raucous sense of humor, which led to the fantastic showmanship that you saw today. He was self-assured, occasionally to the point of outright cockiness. And stubborn as a mule. And I’m a Dutchman and I know from stubbornness. The kind way to say it is he had an exceedingly strong inner compass, and you’ve seen that demonstrated over and over again. Now, having been accused of many such traits myself, I rather thought of them as features, not bugs. [laughter] 
+
+Having had to learn English the hard way, I was a fanatic about getting students to speak and write correct English from the get-go. And Randy the mouth had no problem with that. But he did have one problem. And I’m having a problem with my machine here, here we go. [gets slide to project on screen]. And that was another part of my fanaticism which dealt with having American students learn about foreign cultures. And specifically about food cultures, and more specifically yet, about Chinese food culture. So I would take my students to this wonderful Chinese restaurant where they cooked off the menu using a Chinese menu. And I tried to get Randy to sample this. But would Mr. White Bread touch that stuff? [laughter] Absolutely not. And worse, he refused to learn to eat with chopsticks. I was chairman at the time and I said, Randy, you know, I’m not going to let you graduate if you don’t learn to eat with chopsticks! [laughter] It’s a requirement, didn’t you see that? He of course didn’t believe that. And so it came time for graduation and I handed him his diploma. And this was the picture one of my friends took. [Shows slide of Brown University commencement, 1982, Randy dressed in his cap and gown, opening his diploma, his mouth wide open in surprise] And what you see is Randy opening his diploma to show it to his parents, and there was an autographed copy of the menu in Chinese and no diploma. [laughter, applause]+++(5)+++ It was one of the few times I got the better of him, I have to confess. 
+
+Well here we are today, all of us, and hundreds and hundreds of people all over the country, I dare say all over the world, participating in this great event to celebrate you and your life. Randy is the person, the Mensch, as we say in Yiddish. Your manifold accomplishments as a model academic, especially as a mentor to your students. Your Disneyland expeditions not only were unique but they are legendary. You have more than fulfilled the terms of Brown University Charter, which are: to discharge the offices of life with usefulness and reputation. Your utter devotion to your family and your career are exemplary, and continue unabated as you cope with the immensity of your situation. You exemplify undaunted courage and grace under pressure.+++(5)+++ The most terrible pressure one can imagine. Randy, you have been and you will continue to be a role model for us. [Voice starts cracking up] Thank you so much for all you have done for us. And to allow us to tell you privately and in such a public way how much we admire, honor, and indeed love you. [applause]
