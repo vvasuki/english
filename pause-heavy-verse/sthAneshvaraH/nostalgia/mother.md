@@ -6,7 +6,7 @@ You Gave me the being of first pulsation
 And from the dark of nothingness,  
 Brought me to the light of being.
 
-You As+++(??)+++ the ripples of ah and m,  
+You as the ripples of ah and m,  
 Gave first beats to the tiny heart,  
 And thus gave body to the being that was not there before.  
 
