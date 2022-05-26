@@ -13,6 +13,7 @@ All the great ones come to me.+++(5)+++
 I would be long dead,  
 Had I to go find air to breathe,  
 Or even space and time.  
+
 Now my friend  
 I suspend my journey  
 In quest for the truth.  
