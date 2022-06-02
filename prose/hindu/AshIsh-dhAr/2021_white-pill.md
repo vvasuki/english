@@ -1,0 +1,13 @@
++++
+title = "2021 White pill"
++++
+
+A rare random white pill.
+
+At this point, Hindu resurgence is approaching a point of inflection. There was one such turning point some years back, which significantly shifted the Overton window away from the inane secularist gibberish that followed from the state sponsored indoctrination also called Indian schooling. The indoctrination went on unchecked in the pre-internet era. With the coming of the internet, it took just a decade for truth to prevail on the emotional plane and a large number of people outgrew their conditioning and fear to start speaking freely about things that had oppressed them.+++(5)+++ Those who couldn't keep up with the change became irrelevant. People lost friends, there were fights among family members and neighbours over history, politics and religion. This was a moment of clarity.
+
+Soon, this hard earned intellectual clarity began to yield results and people found great joy in exposing the intellectual bankruptcy of the intellectually bankrupt. Media began reflecting this change in mood and TRP ratings of so called Right wing channels went through the roof. Soon, 'nationalistic' media formed a front of its own and there was now a full-blown battle of narrative both on the internet and off it. The culture of exposing the opponent has now run its course and clarity in politics has turned into an addiction. As don Juan tells his apprentice in Castaneda's story, clarity is the new enemy. It is not enough to expose the enemy, you need the means to deal with him, to defeat him. That needs power.
+
+What we are witnessing today is a recognition of the new paradigm by an ever swelling tribe. The rules of power are different and no amount of intellectual effort can equip you to deal with its ruthless logic. Shakti is subtle and mental activity will never grasp it. Courage, action and an iron will are the prerequisites for success here, not intellectualism and the self congratulatory gift of gab.+++(4)+++ These prerequisites cannot be learnt from cheap modern sources and must be acquired by internalising traditional values by unforgiving practice.+++(5)+++ Hence the steep upsurge of traditionalism in political discourse of late.
+
+To make the transition from intellectual clarity to the realm of power is going to be harder than the first stage as it demands a much greater sacrifice and fierce commitment. Needless to say, it will involve a great deal of intra-group conflict. But it is a necessary transition that a critical mass will have to make for Dharma to be reestablished. The coming years should see more friction between the Indian State and the Hindus who understand the rules of power. Those left behind will become irrelevant just like the secularists of yore.
