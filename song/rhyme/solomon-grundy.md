@@ -1,0 +1,14 @@
++++
+title = "Solomon Grundy"
++++
+
+Solomon Grundy,  
+Born on a Monday,  
+Christened on Tuesday,  
+Married on Wednesday,  
+Took ill on Thursday,  
+Grew worse on Friday,  
+Died on Saturday,    
+Buried on Sunday,  
+That was the end,  
+Of Solomon Grundy.
