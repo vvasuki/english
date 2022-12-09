@@ -1,3 +1,3 @@
 +++
-title = "+bhagavAnuvAcha"
+title = "+bhagavAn uvAcha"
 +++
