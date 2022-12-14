@@ -7,7 +7,7 @@ Two friends grew up together in their gurukula, school. One studied astrology, a
 
 It is hard to imagine how quickly people change when they become successful. The astrologer could not stop making fun of the poor logician for the choice of his subject. And the villagers laughed at his cost. Heart-broken, the logician said farewell. When his friend tried to give him some money, he asked for just one single hair. The astrologer happily pulled one hair and gave it as a gift.
 
-Confused, some villagers followed the logician and asked, why would you need a hair from the astrologer? The logician replied, oh! you poor villagers have no idea he is a Maha Siddha, a person with supernatural powers. A single hair from his body well kept in my house will make me a rich man.+++(5)+++
+Confused, some villagers followed the logician and asked, why would you need a hair from the astrologer? The logician replied, "oh! you poor villagers have no idea he is a Maha Siddha, a person with supernatural powers. A single hair from his body well kept in my house will make me a rich man."+++(5)+++
 
 That was all it was needed for the villagers to gather and pull all the hairs from the body of the astrologer.
 
