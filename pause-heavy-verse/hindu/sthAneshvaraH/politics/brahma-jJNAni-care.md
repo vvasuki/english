@@ -4,7 +4,18 @@ title = "brahma-JNAna-care"
 
 ## महा-सिद्ध-धर्मः
 you had another question, if Mahasiddhas like Khaptad Baba +++(who was from kAshmIr)+++ were concerned about Kashmir issues.  
-My answer is, NO. As far as I can tell, they were not at all concerned about those issues.  
+My answer is, NO. As far as I can tell, they were not at all concerned about those issues.   
+
+<details><summary>विचार-परिवर्तनम्</summary>
+
+> मतपरिवर्तने पृष्टो स स्थानेश्वरायावदन् ननु - "तेषाम् बुभुक्षां न तर्पयितुं शक्नोमी"ति?
+तेन (तल्लेखेषु क्वचिद् उल्लेखेन च) ममायम् ऊहः - तस्यापि विकल्पेषु तादृशे विषये दुःखम् अवर्ततैव।
+किञ्च, कालस्य गतिम्, आत्मनो वयः, स्थितिं, शक्तिं च ज्ञात्वा, नोद्विजते स्म,  
+अपि त्व् असाधारणेन समाधानेन वर्तते स्म।
+
+अत्र स्थानेश्वारर्यो ऽङ्गीकारं प्राकटयत्।
+</details>
+
 How do I know that?  
 I was young then, and every social issue used to bug me; conversion by the missionaries in particular.  
 And I had raised these issues then with them. And they never paid attention. And I was annoyed, thinking, "what the shit is this baba worth if he does not give a damn about our big problems."
