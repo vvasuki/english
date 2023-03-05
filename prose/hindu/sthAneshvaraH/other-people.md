@@ -100,3 +100,12 @@ Varanasi is indeed a confluence. This is the place where great philosophers from
 
 For whatever reason they named the place Sagar or Ocean, it indeed was the Ocean to fill my desire to have one overpowering experience. When I reminisce the trip, the highest joy I feel is of this meet.
 
+## Astrologer
+Guidelines to trim your Facebook network:
+
+1. Let the astrologers go. They already knew you would remove them.
+2. ??
+
+
+An astrologer sent a friend request. I rejected. (I think he knew it. He was just giving me this sadistic pleasure. Really nice.)
+
