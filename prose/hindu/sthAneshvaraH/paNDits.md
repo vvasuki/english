@@ -20,7 +20,11 @@ A friend of mine rejected to submit his dissertation and instead decided to be a
 
 When Vardhamana walked out of Vaishali barefoot, he must have had the zeal to learn, to discover, and not to be entertained. when he stood up in deep meditation for years and years, i do not believe anybody cheered or clapped.May be he soaked all the desire in humanity to learn. all we want today is carnival. without Bakhtin, we would not even know what we really want.
 
-## Dialogue
+## Udayana
+### Murder
+Udayana may have committed a murder. They say he jumped off a palm tree saying "Vedas are the valid means of knowledge" and challenged the competing Buddhist monk to do the same saying "Vedas are NOT the valid means of knowledge." They say the monk could not survive the fall. Now, if Udayana believed that his opponent had a false belief, he should not have allowed the monk to jump.
+
+### Dialogue
 I still love Udayana. For, look at his way of reasoning: parānabhyupagamena hetvasiddheś ca | The reason you give is unfounded because that is not accepted by the other party.+++(5)+++
 
 Today's religious dialogues and even broader social conversations rest on private reasoning; you say it is P because it is Y but only you know why Y should confirm P. And if someone asks for concomitance (vyāpti), you pull out Gun.
@@ -69,3 +73,57 @@ Let me entertain you with the first rule of Descartes for the direction of the m
 > "The aim of our studies should be to direct the mind with a view to forming true and sound judgments about whatever comes before it. "
 
 Apparently there was time when scholars actually believed things like truth.
+
+## The ball
+It was not an ordinary ball. I have not seen anything like this before, for it appeared a ball from one side and a perfect cube from the other. Sraddha had no plan as such for an adventure but it all started with the breakfast and an unplanned introduction with Shen Sheng, and Jerome that ended up with this mystical ball that could have been very well a cube. If not for that breakfast, this whole fuss would not have even started.
+
+Jerome was in India for a vacation. New to India, he was excited to meet chatty Sraddha over the continental breakfast and learn the correct way of doing Namaste. Shen Sheng came tumbling, for he needed some coffee to combat the jet lag. One thing led to another, and they decided to climb the mountain and even chance exploring the cavern that Sheng had read somewhere in the chronicles as the house of a dragon. There was no Sanskrit text to support the myth but the locals said a great sage has been meditating inside for the last one thousand years.
+
+The hills were still gold being caressed by the morning glow. The first climb was daunting but a plateau turned into a valley and they even met some villagers in the upper hills. Slowly the scene changed and the climb ascended again, with a steep slope daring the novices. They had not even seen the face of the cave when they tumbled into this rock. First it was just the shape that drew their attention. And Sraddha screamed, what a perfect ball!, but the same time Jerome from the opposite side screamed, what a perfect cube! Sheng does not speak much but the paradox drew his attention, and as if the contradiction did not even matter, he retorted, really good "square ball."
+
+They decided to carry the object down the hill and so the adventure was terminated. They also talked about the ownership, as Sraddha was particularly passionate to name it and define it. Jerome called it "adbhuta" while Sraddha called it Rama rock. Shen, not knowing what to say, kept quiet. Shen held the object just so that the two do not kill each other but then it started vibrating. Shen screamed, it is alive, and he dropped and the object vanished. Now they have decided to hire some Indologists to determine the object that is no more there.
+
+## Nagarjuna vs Shankara
+Nagarjuna:
+
+> Is it the mustache that has the Buddha or is this the Buddha that has the mustache?  
+Buddha is emptiness and so is the mustache.  
+Mustache Buddha is like a rabbit horn or a mirage.  
+
+Shamkara:
+
+> Buddha is an illusion and so does not exist.  
+But the mustache does.  
+As the Sruti says: brahma puccham pratistha | (तैत्तिरीयोपनिषत्)
+
+
+## Indian Conference 
+If you are interested in ethnography, conference is a real site. It is in the conference that you can observe what individuals and societies display, and by that, you can fathom what they cover.
+
+I just had an opportunity to participate a conference. It is in a conference that you can observe that those who know less speak the most. And those who have less time left exhaust the limits of time the most.
+
+Conferences in the West are all about papers. Who reads what, and who confronts what? In India, we do care about those, but  most importantly, we care about who came and who did not. 
+
+The venue matters the most. We spend more time decorating the venue than carving the paper. 
+
+People in the West prefer if all the papers say something different. We in India like it more, if we all say the same thing. After all, we believe in singularity. The soul of conference, for us, lies not in papers but in maintaining harmony. 
+
+We can have a speaker talking on botany who is a potential Nobel winner in astrophysics. You can ask an economist to speak on Chinese literature. It is not about whether they know more. It is about their presence, their willingness to participate the conference that matters.
+
+What we seek from conferences is very different. Like a wedding, conferences are for us an occasion to celebrate our togetherness. We love food and spend more on music and venue than on management. Because for us, management is not an issue of some individuals: we all are supposed to have some role in the management. It is like the way we drive. When we deshis drive, everybody takes part in driving: go right, go slow, give a signal. And this makes an adventure commonly shared. It is all mechanical in the West. It is not the word that matters but the presence. I have been invited to some conferences fully paid and not have my name as a speaker. They pay for your trip and give you the bonus by not making you speak. Not this time, but I love those occasions when I am saved from the task of "arasikeṣu kavitva-nivedanam."
+
+## Blogs
+Those days I was an undergraduate student in Kathmandu and working in manuscript research project under the guidance of Mahes dai. I am always in debt of my three big brothers: Keshab dai, Purushottam dai, and  Mahes dai.
+
+I do not recall Keshab dai particularly teaching me something but he was an ideal role model for me to follow.
+
+Puru dai, on the other hand, taught me how to write. He gave me my own column in his weekly magazine when I was just an undergraduate student. And he taught me how to argue with the Maoists. And he taught me how to define my personal parameters outside of a narrow well.
+
+Mahes dai was an odd character. He mostly taught me negation. He repeatedly made me believe that whatever I was doing was wrong. He laughed at me for the idea of being a scholar while writing a blog. He wanted me to learn Indology; he thought scholars work on history and the rest are idiots. And I always went back to my Nyaya and Vedanta teachers and asked about history. They all were abhorred of the very idea of reducing their philosophical discourse into some history, any history.
+
+As an undergraduate student, I was confused. I think it was on vimarsha, reflexive consciousness. I wrote a small blog, and shared the magazine with Mahes dai. It was so funny when he picked the magazine and instantaneously dumped it out of the window. He never had any ill will on me. He saw that the folks I was hanging out with were erasing the possibility that I had for my future.
+
+When I left Kathmandu for Varanasi, I promised Mahes dai that I will not write a blog ever again. I told him I will return back a real scholar. And he smirked.
+
+Decades have passed. Mahes dai has retired and is now living in Kathmandu. And he still loves history, as I can say from the blogs that he is writing these days for some weekly magazines.
+

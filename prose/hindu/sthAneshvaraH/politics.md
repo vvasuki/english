@@ -2,6 +2,10 @@
 title = "Politics"
 +++
 
+## Shorts
+
+Long ago in Nepal, people elected their leader by a marathon. Inspired by this, I believe we can have a similar system. Rather than a race, we should let the best comedian win.
+
 ## In Defense of Her Majesty
 It is ridiculous for me to reconsider monarchy after four decades, as the first time I marched in the streets of Kathmandu against monarchy, I was just a teenager. But then, I had not watched The Truman Show; it was not even made. Hollywood did exist, but I had not read Baudrillard.   I did attend some carnivals but nobody even mentioned Bakhtin. My support is not for power but for grandiose, for extravagance and for the simulacra. With the royals around, we all can appreciate the Lorde within each of us. 
 
@@ -71,3 +75,48 @@ facebook network does reveal many interesting and sometimes disturbing trends, h
 
 Mostly dog-posts. How an abandoned dog needs to be adopted, and how a blind dog deserves love. Strangely, the same page welcomes ICE detention centers and separation of families and compares  immigrants beneath anything. the idea of us versus them is so powerful that the same person would adopt a blind dog but would abandon a human child to die. It is possible there is no human nature, no core, nothing.
 
+## Attention
+We have created a society where everyone seeks attention. And we pay attention to those who go nuts. We are the demon makers.
+
+## Reincarnation
+If you have any doubts on reincarnation, you have to closely observe Indian elections. Not only that most of the issues that are fought relate to the past, even the leaders that are most discussed in the political campaign are all dead. Even those who are walking dress like the dead ones and speak like the dead ones. They are merely the simulacra of those who lived before, the shadows of those who could not die even after being dead.
+
+## Dharma Myopia versus Applied Dharma
+A friend recently asked me, is not even applying dharma in our everyday context a form of dharma-myopia, a short vision for our immediate needs. I have to respectfully disagree. Ṛta and Satya are two legs of dharma where the first relates to its dynamic aspect with the second relating to its constant nature. When Manu counts forgiving, kindness, truth and peacefulness, he is referring to the constant nature. Kindness does not change over time and place. 
+
+What to wear or what to eat or when to meditate are all determined by Ṛta, the dynamic nature of dharma. This is where dharma myopia comes into play. When we start bending the constant laws of dharma for our immediate gain, when we distort the Śruti for justifying our debauchery and butchery, this is dharma myopia. We do not make dharma; we do not shape dharma. We can only shape ourselves according to dharma because dharma is the constant law. Again, what are the constant laws? not killing is the constant law. Truthfulness is the constant law. Not stealing from the rightful owners is the constant law. Not letting our senses control us is the constant law. Not hoarding is the constant law. 
+
+A nation that is led by a violent man who lies and steals and is enslaved by his sensory impulses and hoards for his personal gain is similar to a boat with one hundred holes.
+
+## dharma myopia
+this is supposed to be a contradiction. the dharma-gaze is supposed to teach us beyond time, to bracket the ego that is temporal and sequential and adopt a higher gaze that is fixed in terms of permanence and eternity. dharma myopia is a project to redefine dharma that accommodates our immediate needs and addresses our today's concerns, ignoring the higher being in us, ignoring the permanence that runs through our souls.
+
+## Actual solution
+It is detrimental to assume that the political parties that ground their identity on particular social or cultural issue would actually want to solve those problems. Because this very is the lifeblood of their being. It is naive to assume that the opposition party would solve those problems and suspend the lifeblood of the opposite party, as this demands dismantling the playing field and not the structure. Modern democracy is exercised on the basis of the permanent vote banks and solving problems of a group equals erasing this group identity. Those who divide us and rule us always dine together.
+
+## The carnival
+These days they call it election. In the old days, an elephant used to elect the king by putting the garland in the head of his liking. These days, they laugh at the old system. I do not know which system is better. It is because I am only interested in the carnival that it is. Pandits say, they should not sell their vote for one meal. But people know better; these folks have sold their soul. Pandits milk their mothers and sell the milk for the carnivals.
+
+Carnivals come with many colors. They have a cursing monster in one village. He curses anybody who would not vote for him, and the public trembles. In other places, it is plain and simple. If you elect our enemies, we will be powerless to take away your medicine and wage. We won’t have the right to rape you and kill you if you abort. And the public gets scared. And they vote and elect the leader. Who gets elected is not the game. It is not the objective of the carnival. What is the agenda is not what constitutes the carnival. It is the coming together that makes it possible.
+
+Changing the name does not change the content. In our times we used to call it a carnival and these days they call it an election. In some villages, they elect their leader democratically. And whoever does not vote for their beloved leader is killed.
+
+In some places, they vote for the snake oil, and they laugh at others for electing their leaders for the lizard oil. “This is really funny,” they say. This is really troubling how people get easily conned, as they are selling the lizard oil in the name of the snake oil.
+
+## The bard
+He after all has a legacy to upheld. From the time immemorial, they have been the royal court bards, his ancestors I mean. And now when the royals drowned themselves in their own blood and new emperors came with their own bards, he is confused of his obligations. All the memories he has are of the songs of the generations of kings. He in a sense is a historian. He has composed history in songs and he has lived history in his memories.
+
+He tried some roadside singings but did not earn much. He tried composing songs but nobody bought them. He tried many things but could not find passion in those things. Singing the glory of the rulers is deep in his veins; this has been his philosophy.
+
+When I met the bard, he sang his own glory, of how the songs his ancestors composed breathed life in all that is alive.
+
+## Disease
+It should be mandatory for anybody who wants to be a political leader to take a 3-6 months intensive course combined with neurological treatment for having the desire to rule over the others who are equal to them. Political ambition should be first treated like any other disease and the leaders without such treatment should not be allowed to run.
+
+## God's Plan
+Having witnessed the devastation of his creation by his followers, their unwillingness to accept rationality and their never-ending holy-wars and the genocides launched in his name, remorseful God sent the most grotesque among his clowns to earth to rule the land governed by narcissism so that the humanity could finally emancipate from the primitive ideas and evolve as a rational species.
+
+## the teddy bear
+Barely two years old, Jose does not know what Capitalism or Communism is. Jose has yet to learn about the national barriers or the races among the humankind. Jose cried when some unknown "father" dipped his head and was happy to be back to the lap of his mother. Jose is unaware of the journey his parents made to give him a dream life.
+
+Jose does not know the distinction between concentration camp and detention center. Jose only knows his parents are not with him. And he cries today because they took his teddy bear. Those carrying guns in the street are protected by the second amendment. There is no amendment for poor Jose to keep his teddy bear. The nation of the brave is mortified what little Joses might have hidden inside those teddy bears. The home of the free triumphantly laughs today with some teddy bears snatched from little Joses.

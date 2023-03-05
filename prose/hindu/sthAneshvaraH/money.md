@@ -2,6 +2,7 @@
 title = "Money"
 +++
 
+I have observed that even after joining the billionaire's club, a pauper still remains a pauper.
 
 ## The discovery of God
 When the aliens encountered a lost civilization on the blue planet, they discovered a giant monolith with the writings "In God We Trust." They were able to relate to most of the human concepts but the term God did not resemble any of their  concepts. All their historians, anthropologists, archaeologists, philosophers and sociologists vested their energy to comprehend the signature concept that they found alien.

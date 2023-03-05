@@ -2,6 +2,12 @@
 title = "Transcendence"
 +++
 
+## Shorts
+Every society or civilization is founded on myth. It is not the power of  truth but of myth that keeps the culture alive. The first liberation is to free oneself from these constructions.
+
+## Freedom
+It is the inner drive, a surge of being that overpowers the conditions of us being in whichever states. This is not a judgment upon something, this is not a philosophy or politics. We do not explore freedom, it is the other way around. It is the freedom that has found us and freedom will keep finding all the new forms.
+
 ## Potter
 No matter how good the potter, he still needs good clay for pottery. No matter how good the clay, he still needs to beat it and hammer it till it is ready. And finally, when the pottery is made, nobody admires the clay but says, what an amazing potter.
 

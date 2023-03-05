@@ -109,3 +109,7 @@ Guidelines to trim your Facebook network:
 
 An astrologer sent a friend request. I rejected. (I think he knew it. He was just giving me this sadistic pleasure. Really nice.)
 
+## Stranger
+For some time I was hurt, as he abruptly stopped responding to my messages. And then I was pissed, as I never demanded anything from him and all I did was shared some funny jokes and may be I expected the same in return. big deal. And then I forgot about him. But memory is such that it has its own way of digging. 
+
+And his name resurfaced afresh. This time I made a mission to find the reasons for his absence from the canvas of my life. And then I found out he was long dead.
