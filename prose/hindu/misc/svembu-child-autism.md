@@ -27,3 +27,7 @@ Sadly Pramila has chosen to trust my uncle Ram who still lives rent free at our 
 All I can say is that if I am not serving the causes and people I serve now, my will to live would have left me. We have lived this tragic personal life. Now due to my uncle Ram’s falsehoods, the tragedy has added a messy legal dimension.
 
 I have always supported Pramila and my son and will continue to support them as long I live. I am confident truth and justice will prevail.
+
+I have endured vicious personal attacks before and I will endure this one too.
+
+I will continue to build institutions and capabilities in rural India, my only remaining purpose in life. My prayer is that someday my beloved son will join me here. Please pray for us🙏🏻
