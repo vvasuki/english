@@ -177,3 +177,14 @@ Our taxi comes very close to a dog. The dog does not run but instead stops and l
 ## Limbo
 The best place to get insights for life and the oblivion is transit station. This is where you stay with no anticipation than time. This is not waiting for someone. This is just getting old a minute at a time. Tired and hungry faces, dull and sleepless faces, simply waiting for the announcement. But actually the directionless minds and burdensome bodies are in themselves at the moment. And like the spiritual masters duty free stalls are waiting to con the customers anticipating salvation at the transit. People are simply living at the transit as nobody makes a trip to be there trapped in between. And there are some who make transit their home. They dream and make love at the transit. The modern day Kapalikas.
 
+
+## The Pot-Makers
+They were at the gate of the hall. The hall was for a display. Art, architecture, skills, oratory, and above all, cooking. And at the gate were the pot-makers.
+
+She was stunningly beautiful and she kept natural smile on her face. He was focused. She put a lump of clay at the navel of the wheel. And he picked his stick and started spinning the wheel. A vase came in no time. The small corner that he occupied was filled with pitchers, every single shape of it. I asked gently, show me the best of yours. He looked back honestly and retorted, that is yet to be made.
+
+Many come to Kumbh-Mela to find a drop of what once was inside the pot +++(following the myth)+++. Some others come to find the pot-maker. And here they were, sitting gently, abandoned in a corner.
+
+Opposite to the potter’s corner was that of netters’. She was making a mat. Red, white, and dark, all the patterns were a mere fabrication of three colors. The white was not a color: it was just the wool in its natural form. Why red and dark? I asked. I think she did not understand me, as she said ‘just red.’ Or may be she was giving me the basics of philosophy.
+
+Manoj was pulling me out, a bit annoyed that I was focused on pottery and netting and not paying attention to food. Every single food was uniquely made. The food-artists. Even in this heavenly delight of relishing the food, my mind was stuck to the fresh smile of the potter’s wife. I wonder why nobody talks about the potters that make kumbh and make the display of kumbh possible.

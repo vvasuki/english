@@ -49,3 +49,15 @@ He lived in the planes where the average human consciousness does not elevate an
 I am forced to move all my classes online. So far, I had been asked gently, offered grant or course release, and asked more directly, and I kept resisting the idea of 'virtual' teaching. If the Advaita of Samkara taught me anything, the world is already virtual enough and this chain virtuosity is merely to make the simulacra actual.
 
 But any way, now I am tempted to offer some Shastra courses (like Sriharsha or Nagesha) online, if those willing to study are as generous as King Bhoja.
+
+## The Guru
+He had a great sense of humor. But beyond that, he was an embodiment of love. None of these would capture his persona without addressing the wit and the wisdom that he possessed. He was a devoted teacher, revealing all the Agamas. All his students loved his teachings. Some loved him more than they loved his teachings.
+
+One day the guru passed away and time took some of his students. And some students found new books to read. But the students who loved their teacher more were grounded to their guru, seeking his blessings. The students expressed their love by making his statue and they found following the statue a lot easier than to follow his teachings.+++(5)+++
+
+Since now it was easy to follow the guru, people started flocking around. Some good composers made his prayers and the best singers sang those songs. And they danced and they laughed. Nobody remembers any more whether it is the guru that became the statue or the statue that became the guru.
+
+<details><summary>विश्वास-टिप्पनी</summary>
+
+अन्ततः परम्परया शिव एव गुरुः। तम् एव सङ्क्रमन्ताम्।
+</details>

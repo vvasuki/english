@@ -120,3 +120,51 @@ Now they have shrines to worship Cardona. The plant has lost its real significan
 
 I was pleased to see the basin surrounded by four rivers upon my trip to China. I was mostly impressed of its herbalist for identifying the genus and categorizing the plant properly. I saw some fragrant blossoms of the tree and I could even count some new saplings, teeming with life hanging in the garden of Lao Xi. When I sat under the tree, I heard the voice as if coming from the tree, why shall I do my studies? And an answer came back reverberating my being, I shall study because that is what I constitutes my being. And the wind kept blowing and the tree kept singing some archaic songs. I wish I could capture all the Cardona songs.
 
+## Battling for life
+Life
+
+Battling for life, a friend asked me yesterday, why should she be attached to life so much, specifically when the body itself seems crumbling. Since death is inescapable and the entire struggle for life seems prolonging the battle, it does seem at times that the fight is not worth. I could have invoked Shastras or could have played emotion card, I did neither. 
+
+To tell you the truth, I myself had to deal with this question. Not because of illness in my case but rather being subjected to repeated violence, I did question the value of our obsession for life. There is one naive attachment to life, a basic biological instinct. I do not call this love for life, for this is just the way nature has programmed us. But nature has also programmed us to walk out of her programming and to program her instead. So any answer to the question without these reflections would not touch the heart of the question.
+
+Then, why should she favor life over death? Polemically speaking, living gives us chance to die but dying does not give us the same choice. Of course, you can invoke rebirth and all, but I am interested in what is phenomenologically given. But what response should I have for the above question if I discard the polemical one?
+
+The ethical stance is debatable. For all those who have liberated themselves from the shackles of God, invoking the dictum that life is the gift of God is meaningless.
+
+I think we have to appreciate life for different reasons. One, it is while alive that we gain our freedom, both the freedoms from the nature and from our own habits and all the determined modes of being. If we invoke the texts that claim continuity of life after death, even they cannot say you start where you have left. Tomorrow is a new day altogether. A new life comes with new anticipations and now realities. But this life, it is now, it is here, it is real, and it has the opening towards infinite possibilities. And these possibilities can be actualized only while living.
+
+But we do not and should not explore philosophical reason for life. For most people live a non-reflective life. Like the automata, they function predictably and all their dreams and anticipations are predictable. But they never question, what is the point of life? For this is not the question for the automata but for those who have the prerequisites for actualizing freedom.
+
+This ability of higher reflection allows us to return back to the basics. And to enjoy our basic modes of being. Accordingly, life is for enjoying food and music and experiencing sex and love and some heartaches. But those who are interested in liberation would say, this is silly. Because for them, liberation is an escape. They are convinced that there goes a train between bondage and liberation and you are allowed to take the train only when you are free of desires, taṇhā. But when you are free, you savor and rejoice the world with such vivacity that is not even dreamt by those living guided by instincts and trying to escape the chain of instincts which they have called liberation.+++(4)+++
+
+Only a free person can be really happy. And you can actualize this freedom while alive. And as a free being, you can live, and when you have lived full length of what life has to offer, you can also die. This self-determination of death is in itself yogic death. And this way, you will have seen all spectra of life. And this reflective life is possible only to those who once see the stretched face of death and walk out of it alive.+++(5)+++
+
+<details><summary>विश्वास-टिप्पनी</summary>
+
+"Freedom is the ability to choose your own chains."
+</details>
+
+
+## Some arguments against biological determinism
+We are told that all our actions are biologically determined. Meaning, everything we do is predetermined. Not just that, everything we think about or we feel is also predetermined. Some philosophers such as Daniel Dennett have extended the argument and said, the self is just an illusion. Before I take these arguments seriously, I have to admire the marvel of contemporary philosophers and scientists to discover that they are actually the machines. Biasedly speaking, I prefer to have God delusion than machine delusion. But seriously, what if we are machines and we think we are autonomous entities?
+
+The first relief in that case would be freedom from moral limitations. Why should I be responsible for something that I did for which I had no choice? Of course, we do not want any chaos in society but if all our moral orders are for social management, we should punish both the victims and the perpetrators for any harmful incident. For the victim is as much responsible for determinately facilitating the event as the perpetrator.
+
+But of course I can determine the argument the determinists would make: our sense of morality is biologically given and so we have to act morally as this is the way we are programmed to act. But, is not that counterfactual, that we are able to act otherwise than the way we are determined to act and that is, to act morally?
+
+But there is more to excavate here. Why do we think that freedom is an aberration? If freedom does not exist, why does nature make it the central most drive for all the species? Nobody desires to be bound and all want to be free, within the limits of the freedom that they are capable of exercising. Why are we determined to be free? I have no arguments against it, if the determinists argue that we are determined to be absolutely free.
+
+I find the argument of determinism vs freedom a dialectical process: we are exercising determinism to discover our freedom, if we read the way the species have evolved. The very concept of determinism a dependent concept, only upon freedom that determinism makes sense. For the being of determinism, we need the being of freedom. And why should our beliefs be true or false if they are already determined to be as such?
+
+When we say having limited choice is in itself determinism and it is a false sense of freedom when people make a choice, specifically between yes and no, or blue and red pills. But the idea that we have a choice gives rise to an epistemic sense of freedom, the freedom that becomes the basis for an exploration of real freedom. Yes, our choices keep us determined but they also give us the sense of freedom and from this, we extract pure freedom as an exalted concept.
+
+To say nature acts blindly or to say mutation explains pure determinism is similar to saying, there already was a clear map to every single step of our evolution. Not only that we do not know how to explain diversity today based on a few amino acids, we are helpless as it comes to determining the end-goal of the course of evolution. The freedom that nature exercises is in constituting difference, evident in gene variation. We could never be different if our modes were predetermined. For our difference would be self-given within the very first building block of our physicality.
+
+I would rather say, nature is striving towards freedom and the intrinsic drive that makes genetic mutation possible is actualization of freedom. And if this is illusion, so is determinism.
+
+Your comments and suggestions are greatly appreciated.
+
+<details><summary>विश्वास-टिप्पनी</summary>
+
+Neither completely determined, nor completely arbitrary - it's inbetween - probabilistically determined. 
+</details>
