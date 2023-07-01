@@ -61,3 +61,26 @@ Since now it was easy to follow the guru, people started flocking around. Some g
 
 अन्ततः परम्परया शिव एव गुरुः। तम् एव सङ्क्रमन्ताम्।
 </details>
+
+## sankhyA teaching
+I am letting you guys know I have completed recording Samkhya. There are 20 lectures. Needless to say, I spend 5 hours preparing for each lecture and recording takes one hour.
+
+> What are the steps involved in making these lectures please??
+
+Besides 45 years of training, all it takes is comparing different commentaries, comparing different editions, writing my own summary, highlighting essential parts so I do not miss big points, and filtering out minor issues so that I do not waste your time, and sitting and recording is just a quick process. 
+
+In our times, Guruji used to have two types of lecture, one was called vyākhyāna and another was called śikṣā. The first was lengthy lecture for the laymen and the second was technical analysis for students. 
+
+My task in Gurukula was to write the summary for vyakhyana, basically writing notes to help Guruji deliver lecture so he does not need to waste his time.  
+
+We the students never sat for vyakhyana for they used to be really lengthy with stories and so on. I am only trying to do the sikṣā part so anybody serious enough can go and do the reading on his/her own.
+
+> What type of stories?
+
+Most of the stories come from Puranas, some from current political news or some funny anecdotes. Some examples can be really lame. I do not remember the context but I remember one such lame story: 
+
+A jackal entered a dead body eating the body from the bottom and got trapped inside. And when Shiva was walking by, he made a lot of noise and introduced himself as Shiva inside the cave. And Shiva was offended and said, I am Shiva right here and how dare you say you are Shiva. And the jackal said, if you are Shiva make it rain heavily. And so did Shiva. And the hide loosened and the jackal ran away, tricking Shiva into making rain. 
+
+Or another was: 
+
+Shani comes and tells Shiva he has to unfortunately rule him for seven and half years. And Shiva laughed and went to samadhi for that long and came back. And said, you see, you could not affect me. And Shani said, Maharaj, my job is done, you had been in hiding all these years.

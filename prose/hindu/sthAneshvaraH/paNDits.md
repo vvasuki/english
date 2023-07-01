@@ -127,3 +127,5 @@ When I left Kathmandu for Varanasi, I promised Mahes dai that I will not write a
 
 Decades have passed. Mahes dai has retired and is now living in Kathmandu. And he still loves history, as I can say from the blogs that he is writing these days for some weekly magazines.
 
+## Poor philosopher
+Kaṇāda earned his name for eating the leftover. Pippalāda earned his name for relying on tiny figs from the Pippala tree. Once upon a time, it was prestigious to be poor if you were also a philosopher.
