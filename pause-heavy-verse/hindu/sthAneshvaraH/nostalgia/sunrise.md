@@ -1,0 +1,15 @@
++++
+title = "Sunrise"
++++
+
+The Sunrise
+
+Remember the days when we would run out to the new sun every morning and sing with birds and run with the wind? I am not talking about you but about those who were born before the machine age. In those days kids were allowed to have a life and our growth was not measured on the equations we could solve. When I walked out to the sun this morning, I reminisced the first touch of sunlight in the morning and I could not stop indulging myself of being in the nature even though I myself have sold my soul to the machine life. For since the day I came, it had been raining and it was lovely to see the Stony Brook with its full luster.  
+
+I recalled my friend cautioning me, remember, there are seasons in the east coast and the green will turn into yellow and red before all the leaves will turn to dust and the white will blanket the earth. It is not that So-Cal does not have any seasons. Only that it is not explicitly pronounced. I am not as oblivious of the seasons as my friends like to believe. I have seen wilted leaves. I myself have partaken in burning the seasonal brush. It just is easy to pretend that leaves are forever green. 
+
+When I was young, I used to think that I matter. And then I left Nepal. I was curious but also wanted to be objective. So I did not make any announcement. And I went to my regular coffee house +++(in nepAL)+++ where I used to meet dozens of friends associated with social movements. There nobody pretended to recognize me. I understand there was a gap of a decade, but even then. And I went to the college where I taught for a decade and to some other places where I had left my marks. As if I was an aberration, there were no marks to sustain my presence. Time had simply wiped clean of my marks. Then I stoped worrying as if my being and nonbeing makes a difference. For all those who say otherwise are taught to live a simulated life, to make a simulated smile, to love and be in simulation. After the invention of the photo copy machine, this act of simulation has become so easy nobody bothers reading from the originals any more. 
+
+If I were a bird, I would possibly greet the new sunrise as the only sunrise, as the original sunrise, and not as simulation of some past memories. If I were a plant, I would not compare this sunrise with that in the So-Cal. I would only soak my leaves with the warm and nourishing touch of the brilliant rays. 
+
+All we do is to live for the future. The future that is eternally far from the one that has turned into the past. But the futures that have been materialized, the presents that have turned into oblivion, have asked repeatedly to not anticipate something new when the wheel turns for a new round. I know my footprints will soon be erased and the foothills of Iron Mountain or the Mount Gower will be as present to the new pedestrians as they were there for me. But even then, I want to whistle with all my breath or to scream with my chest open, for I do imagine the eco will resonate for a while and there will be some birds who will pick up my whistles and they will sing to their nestlings my way.
