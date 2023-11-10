@@ -838,7 +838,7 @@ of a school of Hinduism in India But he wholly disapproved of and
 almost despised this Western infatuation with Hinduism, which was 
 displayed in his time by Madame Blavatsky in a very assertive form 
 Max Muller first heard about her from his Parsee friend, Malabari, 
-to whom he wrote in 1879 * *1 was muc h amused at your “theosophic 
+to whom he wrote in 1879 \* \*1 was muc h amused at your “theosophic 
 Russian countess”. If she would learn Panim while she is in India 
 she might do more useful work ’ Soon he knew much more about 
 her, and grew suspicious Madame Blavatsky had not gone to India 
@@ -1012,7 +1012,7 @@ INDIA MOVEMENTS
 
 outward representation, but spiritual conformity with the life and 
 character of Christ By Christ I understand one who said, ‘Thy will 
-be done * 
+be done \* 
 
 I feel I must love Christ, let Christians say what they like against 
 me, that Christ I must love, for he preached love for an enemy 
@@ -1076,14 +1076,14 @@ true ideal
 
 This was Muller’s interpretation of the notion of homoousia put 
 into the Christian creed at the Nicene Council at the suggestion of 
-Constantine Then he observed * After these remarks you will better 
+Constantine Then he observed \* After these remarks you will better 
 be able to understand the danger of speaking of Christ in language 
 which carries us back to the panegyrics addressed by pagan poets to 
 their gods and idols If you speak of Christ as not perfectly human, 
 m His own sense of the word, you make a new idol of Him, and you 
 utterly destroy the very soul of His religion ’ 
 
-Sen replied * 
+Sen replied \* 
 
 ‘There is hardly a syllable in your last epistle which I should 
 hesitate to endorse You have said exactly what I should have 
@@ -1225,7 +1225,7 @@ movement would not exist without Christianity One must be above
 public opinion in these matters, and trust to truth which is stronger 
 than public opinion However, the name is a small matter Only I 
 thought that truth and gratitude would declare in favour of Chris- 
-tian Brahmos, or Christian Aryas * 
+tian Brahmos, or Christian Aryas \* 
 
 However, on March n, 1900, less than eight months before his 
 death, he again wrote to Mozoomdar ‘You ought to know me 
@@ -1287,7 +1287,7 @@ when they send you to prison, count on a hot dinner from my table
 every week/ Henry Reeve, the editor of the Edinburgh Review , 
 though a friend, wrote to Muller ‘By the law of England, as I read 
 it, an unordained person who preaches or lectures in a church is 
-guilty of a misdemeanour, punishable with three months’ prison * 
+guilty of a misdemeanour, punishable with three months’ prison \* 
 However, Dean Stanley had taken the opinion of Lord Coleridge, 
 the Lord Chief Justice, and so Muller could write to his friend 
 George Bunsen ‘There is no going to prison yet.’ 

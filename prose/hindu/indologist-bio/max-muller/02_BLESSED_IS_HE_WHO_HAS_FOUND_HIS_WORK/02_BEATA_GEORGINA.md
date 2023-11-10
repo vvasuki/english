@@ -24,7 +24,7 @@ anxious to find me a wife is very good of you 1 Elise who de-
 lighted you so much in Carlsbad, seemed to me pleasant enough, 
 but as I had no opportunity of knowing her better, I have never 
 thought more about her If you are writing greet her kindly, but 
-don’t make any proposal for her hand*’ The future Mrs Muller, on 
+don’t make any proposal for her hand\*’ The future Mrs Muller, on 
 the othei hand, knew nothing of Max Muller’s love and was not 
 herself consciously in love But the whole aspect of their relations 
 changed dramatically in the early summer of 1856 
@@ -66,7 +66,7 @@ who are too humdrum to enjoy that game of chance
 Vanitas vanitatum 3 omnia vanitas , and nobody saw the vanity 
 more clearly than the great Christian Pascal, who said ‘A sense of 
 the hollowness of present pleasures and failure to perceive the 
-hollowness of absent pleasures cause inconstancy * The Victorians, 
+hollowness of absent pleasures cause inconstancy \* The Victorians, 
 on the contrary, succeeded in a very great measure in reconciling 
 the intensity of love with its concentration on one object This is 
 most strikingly illustrated in a letter which Sir George Otto Tre- 
@@ -424,7 +424,7 @@ sitting with Gommy [Miss Grenfell] sat together under the Ilex
 tree and then late at night we went to Charlotte’s arbour, and sat 
 there heart to heart, till our souls seemed one, the mere bodily 
 covering seemed too full of love and joy There are not many such 
-hours in this workaday world, but they are pricelessly precious I * * * 5 
+hours in this workaday world, but they are pricelessly precious I \* \* \* 5 
 The next day brought a different kind of experience, and it is 
 described in the next entry 'Max and I sat in the boat together It 
 was very hot, and I was very cross, because he would kiss me I have 
@@ -470,18 +470,18 @@ this book what would they think of me I had my whole time passed
 m affaires de cceur ? Why am I allowed to make so many unhappy ? 
 Am I really careful enough or do I not like incense, and thus en- 
 courage these poor men? I will be far more circumspect Loving 
-another as I do, I ought to be as indifferent as possible to everyone * 
+another as I do, I ought to be as indifferent as possible to everyone \* 
 Furthermore, she does not suppress the natural envy that she 
 feels and the sense of injustice that she has, when she sees others 
 happy in their love, even her younger sister Charlotte ‘I have been 
 staying with Mary Goodlake, seeing and enjoying her little home — I 
 often wonder why such discipline is needed by Muller and me. I am 
-so down tonight I could cry for hours Ah * why cannot I find rest 
+so down tonight I could cry for hours Ah \* why cannot I find rest 
 m God 5 After this entry comes another ‘There is Mabel Irby, who 
 from the way she has gone on, cannot be capable of a deep true 
 feeling, about to marry that clever Augustus Vansittart, and there 
 are no difficulties of any kind Such is life — One glad and another 
-miserable* Oh* Lord my God, keep my own dear Muller, in body, 
+miserable\* Oh\* Lord my God, keep my own dear Muller, in body, 
 soul, and spirit as Thine ’ 
 
 Last of all, she was capable of being extraordinarily realistic 
@@ -521,7 +521,7 @@ she could not give up Max, even if she would So, on the very day
 on which she set down her sensible view about money, she also 
 wrote ‘I know many would say “Give him up", but it is like cutting 
 away the ground under my feet I think I shall put it all before 
-Uncle C K * 
+Uncle C K \* 
 
 These samples should be enough to convince anybody of the 
 honesty and frankness of an English girl of the Victorian Age, 
@@ -547,7 +547,7 @@ I shall give a selection of characteristic passages,
 
 June 8, 1856 The Sacrament today such a real help Long and 
 deeply did I pray for dear Muller, that whatever was for our good 
-might be done, and that in ‘silence and prayer* we might bear all that 
+might be done, and that in ‘silence and prayer\* we might bear all that 
 God sends 
 
 
@@ -556,7 +556,7 @@ God sends
 
 June 28, 1856 Thank God after three weeks of sad anxiety and 
 earnest prayer for him I have today heard that my dear Muller is more 
-peaceful and enjoying the idea of his mother coming Ah* were it not 
+peaceful and enjoying the idea of his mother coming Ah\* were it not 
 for deep earnest prayer, how could one bear it ? I cannot think of his 
 grief Such a man Why, why am I allowed to cause sorrow to such a 
 mind 7 God keep me true to him Every day I think more of him and 
@@ -589,7 +589,7 @@ my first duty was to my father’, she wrote to Muller on the 17th to
 tell him that all was over and to say farewell Then she set down her 
 feelings in her journal 
 
-Thus the whole joy of my life is gone and his Ah* I cannot face his 
+Thus the whole joy of my life is gone and his Ah\* I cannot face his 
 sorrow and I write this calmly, but Oh ! the storm withm It is hard to 
 submit to duty It is bitter to give up all the happiness of life at twenty- 
 two It is wrong to say this for may not God have other joy in store 
@@ -630,7 +630,7 @@ shall be conquered
 To illustrate her faith in God in her suffering I shall quote only 
 one other entry, set down on May 1, 1859, and only twelve days 
 before the event which was to make her father agree to her marriage 
-with Muller ‘What would life be*, she writes, £ if one could not take 
+with Muller ‘What would life be\*, she writes, £ if one could not take 
 every care to God — little cares or worries which can be breathed to 
 no human ear, but which one may lay before our heavenly Father, 
 the gracious God to “whom all hearts be open, all desires known,” 
@@ -651,7 +651,7 @@ wrote to Max Muller
 
 You are one of the few men to whom I have been drawn passionately at 
 first sight When I found out that you loved her, my affection for you 
-6 * 
+6 \* 
 
 
 
@@ -769,7 +769,7 @@ meals and in the drawing room, more in dressing Then I have io|
 to spend Of these but few go in outing How much is left I would be 
 always busy and able to feel each day ‘my time has been entirely em- 
 ployed this day’ I pray God that I may be able each week to feel in- 
-creasingly that I do everything ‘with all my might* Living for others 
+creasingly that I do everything ‘with all my might\* Living for others 
 and redeeming the time , shall, with God’s help, be my earnest 3 constant , 
 hourly objects — G A G 
 
@@ -815,13 +815,13 @@ neither uncharitable nor sinful to call a man a heretic or unbeliever
 who differ from them on matters, concerning not so much the doctrine, 
 as the discipline and policy of the Church Though I have abstained 
 as much as possible from mixing myself up with any party, yet I know 
-that the very fact of my bemg made Professor at Oxford,* has roused 
+that the very fact of my bemg made Professor at Oxford,\* has roused 
 some angry feelings against me 
 
 But he also honestly admitted that when he first came to Oxford 
 he had spoken ‘rather strongly against those who, while they pro- 
 fessed their faith so very loudly, seemed to be guided in their actions 
-by principles so very different from those of Christianity* Then he 
+by principles so very different from those of Christianity\* Then he 
 concluded with the words 
 
 Nothing is more dangerous, and nothing more apt to bring out the 
@@ -838,7 +838,7 @@ for in his second letter on this subject he quotes a passage from her
 reply in which she said T could not consent to the union of her 
 whom I had above all things desired to tram as a Christian, with 
 one who would lead her away from faith in the Scriptures, and 
-dependence on the Divine Teacher and Redeemer * This language 
+dependence on the Divine Teacher and Redeemer \* This language 
 hurt Muller very much, and he wrote an elaborate and almost 
 panic-stricken apologia pro fidem suam to convince Miss Grenfell 
 He began by telling her that it was impossible for him to defend 
@@ -939,7 +939,7 @@ stoics feel as if they had chosen to have a surgical operation without
 anaesthetic Georgina was resolved to be heroic but felt in the same 
 way At the end of 1857 s ^ e writes 4 The year nearly gone, and 
 though the summer was bright and gay, yet all the year there has 
-been a deep slow undercurrent of sorrow and anxiety * I am so 
+been a deep slow undercurrent of sorrow and anxiety \* I am so 
 weary I long often for rest from it all like a tired child How will it 
 end ?} Again she writes early in 1858 ‘All this tries me very much, 
 and the spring time of life gone, and autumn seems gathering over 
@@ -966,7 +966,7 @@ her and is suffering as much as she is She felt too that all his suffer-
 ing was due to his love for a girl not wholly worthy of him She 
 set down that conviction a few days after his declaration of love to 
 her, and she reverts to the theme again and again ‘Except through 
-deep love to him, I can never be fully, really worthy of him * Are 
+deep love to him, I can never be fully, really worthy of him \* Are 
 my worldly advantages to be for a moment considered as equivalent 
 to his mind and character > The hollow, vam world may think them 
 so, I never can ’ 
@@ -998,7 +998,7 @@ while, Max Muller had been suffering no less Actually, from the
 very morrow of his open declaration of love to Georgina he had 
 ceased to hope For instance on July 3, 1856, less than a month 
 from the declaration, he wrote to Miss Grenfell ‘How right you 
-were when you said, Oh foolish man* Yes, I have been extremely 
+were when you said, Oh foolish man\* Yes, I have been extremely 
 foolish, and I feel I have fully deserved the penalty which I pay. 
 But it is too late to lament over it now ’ 
 
@@ -1014,7 +1014,7 @@ He concluded the letter by giving his promise that she would
 hear no more complaints, and by even setting down his appreciation 
 of Riversdale Grenfell T wish I could tell Mr Grenfell how fully 
 I appreciate his motives, and how much I value the kindness and 
-forbearance which he has shown to me on all occasions * 
+forbearance which he has shown to me on all occasions \* 
 
 But the extraordinary thing was that though everybody said that 
 the matter was ended, nobody brought it to a conclusion For three 
@@ -1250,10 +1250,10 @@ Grenfell, but with a more immediate application ‘May I come by
 the tram that arrives at Maidenhead at 11 25 
 
 On the same day after arriving at Ray Lodge, Georgina set down 
-in her journal ‘ “Thou dost all things well*” Great joy given me 
+in her journal ‘ “Thou dost all things well\*” Great joy given me 
 God help me to bear it Papa removes his veto and Max and I meet 
 the day after tomorrow “Tarry thou the Lord’s leisure, be strong 
-and He shall comfort thine heart ,s * 
+and He shall comfort thine heart ,s \* 
 
 At 11 25 Max Muller was going to arrive at Maidenhead station. 
 Georgina was sitting in her room expecting him and she set down 
@@ -1314,9 +1314,9 @@ utterly satisfied feeling This grows every day ’
 
 The following entry was the last one before her wedding day 
 
-Thursday 12 p in — Just in from the garden Oh* how happy we have 
+Thursday 12 p in — Just in from the garden Oh\* how happy we have 
 been , sitting under our own ilex, and next time we are together it will 
-be as husband and wife What solemn words, yet how blessed ‘Oh* 
+be as husband and wife What solemn words, yet how blessed ‘Oh\* 
 God our Heavenly Father, Thou hast led us hitherto and ordered 
 everything to this end Do thou still lead and guide us and enable us 
 to offer ourselves our souls & bodies as a sacrifice to Thee, so that after 
@@ -1326,7 +1326,7 @@ Thee, in a brighter world where nothmg changes or passes Amen ’
 And on the morning of her wedding day she wrote ‘My wedding 
 Day “Bless the Lord, oh my soul ” I go with perfect confidence 
 and trust May God bless us both and may our lives be devoted to 
-Him Amen*’ 
+Him Amen\*’ 
 
 After the wedding at Bray Church the newly married couple 
 spent a week at Eversley Rectory lent by Kingsley, and then they 
@@ -1335,7 +1335,7 @@ Muller’s mother at Dresden, his sister at Chemnitz, and visiting
 Bohemia, Switzerland and western Germany on their way back to 
 Oxford, which they reached on October 24 Two months later she 
 set down the last entry in her diary about her love affair and 
-marriage* 
+marriage\* 
 
 Ray Lodge — X’mas Day, 1859 I have not written anything in this 
 book in the last four bright months My life seemed too bright for 
@@ -1343,7 +1343,7 @@ words I am not disappointed Much as I had expected from my long-
 loved Max I had no idea of half his value I cannot express his deep 
 love, his tenderness, his forbearance Our three months abroad were 
 mdeed happy and there began the hope of even greater joy for the 
-future and tho* God has destroyed that hope for a time, still intense 
+future and tho\* God has destroyed that hope for a time, still intense 
 happiness is showered on us Our joy is awful I can but pray that our 
 good and gracious Father will bless our happy life now, to our real 
 eternal good as I feel he did the years of sorrow that preceded it And 
@@ -1382,7 +1382,7 @@ appointment in love It was a short novel or long story in German
 to which he gave the title Deutsche Liebe , German Love He wrote it 
 m the autumn of 1856 when his mother was with him at Oxford, 
 and it was published anonymously by Brockhaus of Leipzig in 
-February 1857 I* became very popular there, and before Max 
+February 1857 I\* became very popular there, and before Max 
 Muller’s death in 1900 went through twelve editions An English 
 translation by one Miss Wmkworth was immediately published, and 
 it was widely read There was also an unauthorized American trans- 
@@ -1471,7 +1471,7 @@ very attribution which continued to be made So, in the preface to
 the sixth English edition published in 1898, Muller wrote T have 
 received during the last forty years ever so many inquiries whether 
 the book was autobiographical, and I have had to explain again and 
-again that it was not, and why it was not I * * * 5 * * * He explained that it was 
+again that it was not, and why it was not I \* \* \* 5 \* \* \* He explained that it was 
 only the idea of love with which he was concerned, and the story 
 was no more than the frame in which it had to be set Love was a 
 word, he added, ‘which has had many and often very conflicting 

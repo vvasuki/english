@@ -298,7 +298,7 @@ killed. The present devil’s brood in France will fall after one lost
 battle. There is perhaps nothing better for the ultimate consolida- 
 tion of Germany than this war , Who knows how long this war 
 may last? I should like to live to see its end 1 ’ He was only forty- 
-seven * 
+seven \* 
 
 
 
@@ -310,7 +310,7 @@ it is a cup that could not pass France cannot break a united and strong
 Germany , and the reckless gambler who usurps the throne of France 
 took advantage of this national jealousy to save himself from his in- 
 evitable end for a few years longer But the misery it bangs to thou- 
-sands of happy homes passes all description * This war can only end 
+sands of happy homes passes all description \* This war can only end 
 either in the destruction of Germany, or in a revenge without parallel 
 m history 
 
@@ -380,7 +380,7 @@ than Carlyle, who concluded a long letter to The Times (November
 solid Germany should at length be welded into a nation and become 
 Queen of the Continent, instead of vapouring, vainglorious, gesti- 
 culating, quarrelsome, restless, and over-sensitive France, seems to 
-me the hopefullest public fact that has occurred in my time * 
+me the hopefullest public fact that has occurred in my time \* 
 
 In a letter to his friend Professor Bernays, Max Muller even spoke 
 regretfully of the respect with which the world was now treating 
@@ -404,7 +404,7 @@ POLEMICS POLITICAL AND SCHOLARLY 247
 Conway, who was reporting the war T doubt whether it is w lse to 
 weaken France at the very moment that Germany becomes so much 
 more powerful As to making France harmless, that can never be 
-done, and I doubt whether for the sake of Germany it is desirable * 
+done, and I doubt whether for the sake of Germany it is desirable \* 
 
 Naturally Max Muller's wife w T as pro- German, and he informed 
 his mother that ‘G [Georgina] is e\en more German than I am’, 
@@ -465,14 +465,14 @@ French acceptance of the unity of Germany under Prussian hege-
 mony Sir Harry Verney charged Prussia and Bismarck with enter- 
 taining this scheme, and said that 'an English Minister who could 
 dishonour his country by listening for a moment to such proposals, 
-would be driven from office by an indignant people* 
+would be driven from office by an indignant people\* 
 
 Max Muller at once replied, denying that the acceptance of the 
 document by Bismarck in any way implied his agreement with the 
 proposals But on the very next day (July 26) he wrote to Stanley 
 'I feel by no means quite happy about the Traite de paix entre la 
 France et la Prusse If it is genuine, however, then neutrality on the 
-part of England would be criminal * Afterwards he contended that 
+part of England would be criminal \* Afterwards he contended that 
 though Bismarck kept the document he was not in collusion with 
 France But the mam contention of Sir Harry Verney was that 
 Prussia and Bismarck had aggressive designs already prepared and 
@@ -844,7 +844,7 @@ believe that truth is much advanced by public controversy, and I
 have carefully eschewed it during the whole of my literary career/ 
 There can be no doubt that he was right in this view Scholars 
 are scarcely ever convinced by the opinions of other scholars workmg 
-9* 
+9\* 
 
 
 
@@ -1036,9 +1036,9 @@ Muller's
 1 Whether the Latin of the inscription on the Duihan Column 
 represents the Latin as spoken in 263 b c 
 
-2 Whether Ahura-Mazda can be rendered by ‘the mighty spirit* 
+2 Whether Ahura-Mazda can be rendered by ‘the mighty spirit\* 
 
-3 Whether sarvanama in Sanskrit means ‘name of everything* 
+3 Whether sarvanama in Sanskrit means ‘name of everything\* 
 
 14 Whether in saying that the soft consonants can be intonated, I 
 could have meant that they may or may not be intonated 
@@ -1150,7 +1150,7 @@ helpers, has been described in a previous chapter
 Perhaps from the point of view of a specialist in Sanskrit scholar- 
 ship the opinion which Cowell expressed to Mrs Muller was the 
 most balanced Cowell knew Max Muller well, and was then 
-Professor of Sanskrit at Cambridge He wrote * 
+Professor of Sanskrit at Cambridge He wrote \* 
 
 My dear Mrs Max Muller, 
 

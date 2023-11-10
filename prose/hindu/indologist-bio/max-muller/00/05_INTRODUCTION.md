@@ -110,7 +110,7 @@ Hail to your purlieus,
 
 All ye highfliers of the feathered race, 
 
-Swallows and curlews* 
+Swallows and curlews\* 
 
 Here’s the top-peak, the multitude below 
 Live, for they can, there , 
@@ -145,7 +145,7 @@ scholars like R G Bhandarkar and R C Dutt paid tributes to him
 Similar interest mixed with concern was also shown during his 
 serious illness the previous yeai Examining a volume of his papers 
 m the Bodleian I found at its beginning a whole sheaf of pink tele- 
-gram forms* The very first telegram was ‘Sept zy ’99 — To Mrs 
+gram forms\* The very first telegram was ‘Sept zy ’99 — To Mrs 
 
 
 
@@ -328,7 +328,7 @@ me an idle, useless, and indolent man, and though I have not wasted
 many hours of my life, I cannot deny the charge that I have neither 
 fought battles, nor helped to conquer new countries, nor joined in any 
 syndicate to roll up a fortune I have been a scholar, a Stubengelehrter , 
-and mild tout * Much as I admired Ruskm when I saw him with his 
+and mild tout \* Much as I admired Ruskm when I saw him with his 
 spade and wheelbarrow, encouraging and helping his undergraduate 
 friends to make a new road from one village to another, I never myself 
 took to digging, and shovelling, and carting Nor could I agree with him, 
@@ -347,7 +347,7 @@ priest behind the warrior
 I cannot claim [he further observed], to have been a man of action in 
 the sense in which Carlyle was one in England, or Emerson in America 
 They were men who in their books were constantly teaching and 
-preaching ‘Do this*’ they said, ‘Do not do that*’ The Jewish prophets 
+preaching ‘Do this\*’ they said, ‘Do not do that\*’ The Jewish prophets 
 
 
 

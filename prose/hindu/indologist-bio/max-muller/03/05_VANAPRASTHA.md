@@ -83,7 +83,7 @@ of Darwin and Haeckel, and when the guest went into the house
 Muller turned upon Newbolt, looking up with a flash through his 
 gold-rimmed glasses and burst out Tf you say that all is not made 
 by design, by Love, then you may be in the same house, but you are 
-not in the same world with me I * * * 5 That was, of course, the gauntlet 
+not in the same world with me I \* \* \* 5 That was, of course, the gauntlet 
 thrown down by the teleologist to those who say that emergences 
 are brought about by wholly accidental permutations and combina- 
 tions Newbolt’ s more vivid memory was of the lover of dogs 
@@ -166,7 +166,7 @@ your late illustrious husband in the middle of May 1882, at your
 hospitable residence in Oxford To you and to your husband it was 
 only one of the numerous visits Indians of all castes and creeds, of 
 all shades and colours, paid to the great Rishi of Oxford, but to me 
-it has been one of the most memorable incidents of my whole life * 
+it has been one of the most memorable incidents of my whole life \* 
 Even immediate sorrow would not prevent him from receiving 
 an unknown Indian In 1886, soon after the death of Max Muller’s 
 daughter Mary, a Bengali came to see him at Oxford, and he left 
@@ -175,7 +175,7 @@ in 1889 His name was Trailokya Nath Mukharji This is what he
 wrote 
 
 So one day in November 1886 I rang the visitor’s bell at the door 
-of his cottage in the suburbs of Oxford * Mrs Max Muller herself 
+of his cottage in the suburbs of Oxford \* Mrs Max Muller herself 
 opened the door An elderly gentleman of venerable appearance soon 
 appeared in the passage, who received me with the utmost kindness 
 It needed not an introduction to tell me that I stood in the presence of 
@@ -184,7 +184,7 @@ love of Vedic learning, and with Pamm in his power of critical investi-
 gation and intelligent collation of facts Still I asked ‘Have I the 
 honour to speak to Professor Muller He quietly said ‘I am that indi- 
 vidual ’ Then we sat for a long time in his cosy drawing room where a 
-cheerful fire was burning, but, alas* deep sadness reigned over the 
+cheerful fire was burning, but, alas\* deep sadness reigned over the 
 whole house The Professor constantly talked of India and the Hindus 
 for whom he has the deepest sympathy and love He told me that 
 although his body lived in England his mind and soul were in India 
@@ -197,7 +197,7 @@ Prince of Sweden, a Red Indian chief named Strong Buffalo and
 Prince and Princess Christian The well-known American author 
 Oliver Wendell Holmes came in 1886, and Lowell, the American 
 
-* 7 Norham Gardens was big enough to house Max Muller’s 13,000 books, and 
+\* 7 Norham Gardens was big enough to house Max Muller’s 13,000 books, and 
 is now a school At that date ‘north of the Parks’ was a suburb of Oxford 
 
 
@@ -313,7 +313,7 @@ reference by him to such a project is to be found in a letter to the
 Sinologist Legge, which he wrote on February 13, 1875 In it he 
 informed Legge that he was trying very hard to get a number of 
 
-* One index volume was added later, and it was compiled by Dr Wmtermtz 
+\* One index volume was added later, and it was compiled by Dr Wmtermtz 
 
 
 
@@ -339,7 +339,7 @@ certain sacrifice, for they must leave for a time their own special re-
 searches He also observed that ‘there was the most serious difficulty 
 of all, a difficulty which no scholar could remove, viz , the difficulty 
 of finding the funds necessary for carrying out so large an under- 
-taking * However, through the interest taken in it by Lord Salisbury, 
+taking \* However, through the interest taken in it by Lord Salisbury, 
 who was for some time Secretary of State for India, Sir Henry 
 Maine, a former member of the Viceroy’s Executive Council, and 
 Dean Liddell, Vice-Chancellor of Oxford, it was decided to publish 
@@ -548,7 +548,7 @@ the conviction that it is impossible to translate old thought into
 modern speech, without doing some violence either to the one or to 
 the other, will hardly hesitate in his choice between two evils He 
 will prefer to do some violence to language rather than to misrepre- 
-sent old thoughts by clothing them in words which do not fit them * 
+sent old thoughts by clothing them in words which do not fit them \* 
 He illustrated his principle later in his report to Dean Liddell by 
 describing his method of translating the Upamshads , which were 
 not only obscure but also repellent in many places He wrote 
@@ -616,7 +616,7 @@ proposed the second series, mes amts les ennemis did all that they could
 to prevent it They have not succeeded, and the second series will 
 appear, but I shall be glad of an authoritative voice like yours to tell 
 the English public the real purpose of the undertaking Most of my 
-English critics say ( Les Bibles de Vhumamte ne sont pas amusantes* 
+English critics say ( Les Bibles de Vhumamte ne sont pas amusantes\* 
 Certainly not 1 they are not amusing, on the contrary, they are the very 
 saddest books to read But they must be read, they must be meditated 
 on, if we want to know what kind of creature homo sapiens is 
@@ -1074,7 +1074,7 @@ among his critics, in a letter written in 1897 ‘Still less could I
 understand why you should have attacked me, or rather my masters, 
 without learning Sanskrit, which is by no means so difficult as 
 people imagine You must have a rapier to fight a man who has a 
-rapier, otherwise it becomes a row * 
+rapier, otherwise it becomes a row \* 
 
 He asserted at the same time that he did not dispute the value of 
 the anthropological approach, and observed ‘I don’t say that I 
@@ -1114,7 +1114,7 @@ pleasure certain occasions when Mr Max Muller turned my own laugh
 against myself, with victorious humour and good humour History 
 would offer reading much more agreeable, if discussions were always 
 conducted (they almost never are) in the genial and humane temper 
-which Mr Max Muller displayed in dealing with an 'opposite* so un- 
+which Mr Max Muller displayed in dealing with an 'opposite\* so un- 
 worthy as myself 
 
 Such letters keep up one’s faith in and respect for writers and 
@@ -1264,13 +1264,13 @@ shorter writings are collected in Chips from a German Workshop
 Now I feel it is high time I drew in my sails — which hitherto have 
 been for ever spread to the favouring gale ’ 
 
-Q ‘May we next discuss your methods of work?* 
+Q ‘May we next discuss your methods of work?\* 
 
-A ‘They are very simple When I have nothing to do I work * 
+A ‘They are very simple When I have nothing to do I work \* 
 
 Q ‘But your recreations, Professor ^ 
 
-A ‘Oh* I didn’t want them As soon as I felt exhausted I gave up and 
+A ‘Oh\* I didn’t want them As soon as I felt exhausted I gave up and 
 rested Absence of occupation is not rest 9 
 Q ‘And now may I ask what progress y our special studies are making ? t 
 A ‘Most satisfactory on the whole The three mam branches especi- 
@@ -1282,7 +1282,7 @@ Q ‘A last word as to Oxford, Professor
 
 A ‘Oxford the unchangeable 5 Why, it has simply been revolutionized 
 m appearance and character since I first saw it Fancy, there were 
-no married dons in those days * And now* [He did not tell the inter- 
+no married dons in those days \* And now\* [He did not tell the inter- 
 viewer that he was the first married Fellow ] The Vice-Chancellor 
 and heads of houses were little kings If you happened to catch 
 them in good humour at dinner, they would mention your wish at 
@@ -1469,7 +1469,7 @@ vanity. For example, de Goeje in his eloge said
 One of my colleagues at Leyden one day saw me surrounded by Max 
 Muller’s books and expressed his surprise When I informed him that 
 I was preparing myself to write a notice of his life and work he ex- 
-claimed ‘Ah* I do not like your Max Muller He was a vam man who 
+claimed ‘Ah\* I do not like your Max Muller He was a vam man who 
 was only after his own glory ’ I protested against this judgement, 
 which I have heard pronounced by others 
 
@@ -1681,7 +1681,7 @@ their own religion and declared that no one who had not examined
 patiently and honestly the other religions of the world could know 
 what Christianity really was, or could join with such truth and sin- 
 cerity in the words of St Paul, ‘I am not ashamed of the gospel of 
-Christ * 
+Christ \* 
 
 It is hardly to be wondered that in the light of such opinions 
 incessantly repeated by Max Muller, orthodox Christians would 

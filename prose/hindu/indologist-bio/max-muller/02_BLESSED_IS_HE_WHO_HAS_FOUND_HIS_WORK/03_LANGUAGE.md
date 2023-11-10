@@ -54,7 +54,7 @@ the human mind, on which he showed himself to be a pioneer This
 was pointed out in a French book, UOngin de la Pensee et de la 
 Parole , published from Pans in 1900, a few months before his death 
 and recommended by him in his autobiography ‘as giving a clear and 
-complete abstract of my writings’ * 
+complete abstract of my writings’ \* 
 
 The name of the author was given as in Moncalm, but it was the 
 pseudonym for a woman, Madame de Wagner, who lived in Rome 
@@ -88,7 +88,7 @@ tual propensity and his philological work was indicated If his end
 was to understand the beginnings of mental activity in man, whose 
 first notional products were about religion and! mythology, he had to 
 
-* Translated into English by G S Whitmarsh under the title of The Origin of 
+\* Translated into English by G S Whitmarsh under the title of The Origin of 
 Thought and Speech (London, 1905) 
 
 
@@ -109,7 +109,7 @@ a consubstantiality between the two Ratio et Oratio , he said, were
 one, and he referred to the fact that the Greeks designated both by 
 the same word, Logos Therefore, one is not surprised to find 
 Muller saying ‘Language is the autobiography of the human 
-mind * 
+mind \* 
 
 Max Muller’s conclusions about language will be summarized 
 later in this chapter, but before this is done it is necessary to de- 
@@ -125,7 +125,7 @@ ming up the results achieved to date by the new science of Com-
 parative Philology Muller concluded the article with the words Tt 
 may be seen from this single instance that Comparative Grammar 
 addresses itself not only to the Grammarian, but to the Philosopher 
-and the Historian also * He never forgot this comprehensive am- 
+and the Historian also \* He never forgot this comprehensive am- 
 biance of philology in his treatment of language 
 
 It was, however, as deputy and full Taylonan Professor of 
@@ -162,7 +162,7 @@ such lectures, all of which I attended ’
 Tuckwell, author of a volume of delightful Oxford reminiscences, 
 also went to the lectures with Dr (afterwards Sir Thomas) Acland, 
 the physician Acland, he said, was disturbed, fidgeted, bit his nails, 
-and remarked ‘It frightens one*’ Tuckwell wrote that these lectures 
+and remarked ‘It frightens one\*’ Tuckwell wrote that these lectures 
 taught him the novel doctrine of Aryan migrations, and the rationale 
 of Greek myths Story-Maskelyne, another Oxford figure and Pro- 
 fessor of Mineralogy, also attended, and after Muller’s death 
@@ -177,7 +177,7 @@ ture, that Max imported mto the grey old walls of beautiful Oxford
 
 Story-Maskelyne added that Philip Pusey, son of the great 
 Doctor, rode over with his boy-son all the way from his place near 
-Faringdon sixteen miles away to hear each lecture* c An early 
+Faringdon sixteen miles away to hear each lecture\* c An early 
 homage to the rising fame of the redactor of the Rig-Veda ’ Finally 
 Story-Maskelyne wrote 
 
@@ -208,7 +208,7 @@ made a sharp attack on Muller’s views on the Turanian languages
 Muller became very angry, and wrote a long and fierce review of 
 Renan’s book and had it printed as a pamphlet Renan then wrote 
 to Muller ‘Pardonnez-moi, je n’ai pas compns ce que vous vouhez 
-dire * Upon this Muller suppressed the pamphlet, though its print- 
+dire \* Upon this Muller suppressed the pamphlet, though its print- 
 ing must have cost him some money, and afterwards he and Renan 
 became intimate friends Later in his life Muller gave up all the 
 views on the Turanian languages expressed in the essay, as they 
@@ -731,7 +731,7 @@ instrumentality of man alone that language can be changed
 Language, he said by way of summing up the case he was making, 
 reflects the double nature of man, half animal and half a sentient 
 being ‘With one foot language stands, no doubt, in the realm of 
-nature, but with the other in the realm of the spirit * This naturally 
+nature, but with the other in the realm of the spirit \* This naturally 
 led him to raise the question which he himself put in these words 
 ‘Every language has to be learnt, but who made the language that 
 was to be learnt ^ But this question, he said, could not be answered 
@@ -871,7 +871,7 @@ of true language, and which the philologists called roots These
 roots, from which with certain exceptions all words were derived, 
 were expressions of general concepts, and unless animals were 
 capable of airivmg at general concepts language could only have 
-originated with man On this point Muller argued as follows* 
+originated with man On this point Muller argued as follows\* 
 
 We do not know anything and cannot possibly know anything of the 
 mind of animals therefore, the proper attitude of the philosopher with 
@@ -916,7 +916,7 @@ ledge four things Sensations ( Empfindungen ), Percepts (Vorstel-
 lungen). Concepts (Begnffe) and names ( Namen ) But though we 
 can distinguish them, we must not imagine that these four ever 
 exist as separate entities No words are possible without concepts, 
-no concepts without percepts, no percepts without sensations * 
+no concepts without percepts, no percepts without sensations \* 
 Since sensations preceded the other three, he was ready to admit as 
 a matter of argument that they could exist independently of the 
 others But as a matter of fact, he said, thought was utterly impos- 
@@ -1177,7 +1177,7 @@ said that he had done nothing but original work, but was abused for
 not always having found at the first trial what others discovered 
 when standing on his shoulders In his posthumous autobiography 
 he said the same thing about himself in connexion with an essay 
-of his on the Turanian languages Tt was published’, he wrote, *m 
+of his on the Turanian languages Tt was published’, he wrote, \*m 
 1854, but it still continues to be criticized as if it had been pub- 
 lished last year ’ Then he commented wisely, though also sadly 
 ‘No astronomer is blamed for not having known the planet Neptune 
@@ -1233,5 +1233,5 @@ language, as he was himself attracted by the romance He could say:
 
 Bliss was it in that dawn to be alive, 
 
-But to be young was very heaven * 
+But to be young was very heaven \* 
 

@@ -181,7 +181,7 @@ and many more, who came to the Duke’s palace as guests He patro-
 nized the educational reformer, von Basedow, who was the pre- 
 cursor of Pestalozzi and Froebel, and gave him a home in Dessau 
 when he had to leave Hamburg after a riotous mob had burnt down 
-his house* Even Treitschke, the champion of Prussia, who had no 
+his house\* Even Treitschke, the champion of Prussia, who had no 
 
 
 
@@ -519,7 +519,7 @@ would not leave them behind but take them with her This restful
 place planted a life-long love in Max Muller for acacias But at that 
 time the inscription over the gateway of the place puzzled him very 
 much It ran ‘Tod 1st mcht Tod, 1st nur Veredlung Menschhcher 
-Natur * — ‘Death is not death, ’tis the ennobling of man’s nature ’ 
+Natur \* — ‘Death is not death, ’tis the ennobling of man’s nature ’ 
 
 Although Max Muller from his early childhood grew up in the 
 shadow of death, he came on both sides from a stock which possessed 
@@ -981,7 +981,7 @@ sister] with me I cannot tell you how I rejoice at the thought of this
 time, when I must take another step forwards, and shall again, at all 
 events for a time, be with my own people 
 
-He was then just over seventeen* 
+He was then just over seventeen\* 
 
 
 
@@ -1104,7 +1104,7 @@ life, Max Muller said that duels could never be defended, it was
 remarkable that even at that age, he should justify them, at least for 
 German students In the German universities, he said, the society of 
 students was very mixed and perfect equality reigned among them 
-— all of them addressed one another with the ‘Thou* (Du) So a 
+— all of them addressed one another with the ‘Thou\* (Du) So a 
 gentleman's son required some kind of protection against the son of 
 a butcher or of a day-labourer. Crude fighting with hands was 
 entirely forbidden among German students, so that there remained 
@@ -1113,7 +1113,7 @@ young ruffian but to call him out Muller deliberately set down the
 view ‘Of course, duels can never be defended, but for keeping up 
 good manners, also for bringing out a man’s character, these aca- 
 demic duels seem useful However small the danger is, it frightens 
-the cowaid and restrains the poltroon * Still, he hoped for a time 
+the cowaid and restrains the poltroon \* Still, he hoped for a time 
 when it would be possible for men to defend their honour without 
 recouise to sword or pistol 
 

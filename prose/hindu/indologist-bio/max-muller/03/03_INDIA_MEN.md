@@ -32,7 +32,7 @@ with the eyes, nay, in many cases I believe imagination is truer
 than what you see. People go to Jerusalem to see the place of some 
 of the miracles, and they do not see the greatest of miracles, that out 
 of that small town, in a small country, there should have risen a 
-light to light the whole world * 
+light to light the whole world \* 
 
 The fact that he had no first-hand experience of India was often 
 thrown in his teeth by the Englishmen there, who did not like his 
@@ -43,7 +43,7 @@ were ever to visit the country Referring to this the Statesman of
 Calcutta, one of the leading English language newspapers in India, 
 then wholly under English ownership, management and editorial 
 
-10* 
+10\* 
 
 
 
@@ -106,7 +106,7 @@ mulate his peculiar view of the historical development of this
 literature He expounded it on different occasions, but expressed it 
 most succinctly and clearly in the lectures delivered by him at 
 Cambridge in 1882, which afterwards he published under the title 
-India * What Can It Teach Us? 
+India \* What Can It Teach Us? 
 
 According to him, the whole of Sanskrit literature could be 
 divided into two parts one preceding the Turanian invasions, and 
@@ -315,14 +315,14 @@ In his diary Muller wrote
 
 Last Saturday Nilakantha Goreh called on me 1 It was sad — I had 
 not seen him for I suppose 25 years He has become a monk, a Cowley 
-Brother* How different from what he was when he stepped into my 
+Brother\* How different from what he was when he stepped into my 
 room in Park Place 1 He was then a true martyr, a man who had made 
-greater sacrifices for his conviction than any man I knew And now* 
+greater sacrifices for his conviction than any man I knew And now\* 
 The old fire is quenched 1 ‘We must keep to the Creeds’, he says — he 
 who had left father, wife, friends, fortune and home to be free of men 
 and creeds [The year is 1877] 
 
-In the biography of Goreh written by a missionary,* he is shown as 
+In the biography of Goreh written by a missionary,\* he is shown as 
 making harsh remarks about Max Muller, and airing contempt for 
 his knowledge of Hindu philosophy But Muller in his reminiscences 
 of Goreh, written at the end of his own life, had only praise and affec- 
@@ -408,7 +408,7 @@ been Pusey held his ground Much depended on what salvation
 meant, and Sen defined it as an uninterrupted union with God and 
 said ‘My thoughts are never away from God my life is a constant 
 prayer, and there are but few moments in the day when I am not 
-praying to God*’ Dr Pusey was softened by this, and remarked with 
+praying to God\*’ Dr Pusey was softened by this, and remarked with 
 a smile ‘Then you are all right ’ 
 
 In 1878 there came a crisis in Sen’s triumphant religious career 
@@ -994,7 +994,7 @@ sms For example, he quoted among many others a passage from the
 Vasistha treatise on law Tf a man speaks an untruth at the time of 
 marriage, in sexual intercourse, when his life is in danger, or when 
 he is likely to lose all his property, and when a Brahmana is in 
-danger, it has been declared that these five untruths are not sms * 
+danger, it has been declared that these five untruths are not sms \* 
 There are, of course, many such passages in all Hmdu sacred texts 
 But, on the whole, Max Muller could make out a strong case for the 
 Hindu’s love of truth in ancient times from Hmdu scriptures and 
@@ -1028,7 +1028,7 @@ He stated the issue between him and the men on the spot even
 more clearly in his letter to The Times on the Ilbert Bill, which 
 appeared in the paper on August 6, 1883 What he said might be 
 described as a methodological expose in a nutshell Muller con- 
-fessed that he could not claim 'the honourable title of Anglo-Indian*, 
+fessed that he could not claim 'the honourable title of Anglo-Indian\*, 
 but added that he had read the accounts of the most eminent 
 Anglo-Indians of former times, and was acquainted personally with 
 many of his time According to him, the Anglo-Indians could be 
@@ -1152,7 +1152,7 @@ amusing scene in an early Bengali farce in which a young man
 rushed to give a beating to his friend who called him a ‘liar’ 
 The offender was very much shocked by it, and asked for an expla- 
 nation The angry young man replied that had he been called 
-mithyavadi (1 e*, liar in Bengali) he would not have minded it at all, 
+mithyavadi (1 e\*, liar in Bengali) he would not have minded it at all, 
 
 
 

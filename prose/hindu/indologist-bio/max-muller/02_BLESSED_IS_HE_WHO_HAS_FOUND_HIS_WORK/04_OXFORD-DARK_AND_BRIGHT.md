@@ -89,7 +89,7 @@ entury, like parliamentary reform, was earned out in three stages,
 rient and an executive commission There was in 1872 another 
 ommission of inquiry, and an Act of 1877 This was followed by 
 n executive commission from 1877 to 1881 As a result, there was 
-ubstantial improvement in details of organization as *vell as teach- 
+ubstantial improvement in details of organization as \*vell as teach- 
 ig But there was no revolutionary change in the university's formal 
 ructure and functioning For instance, the very basil issues which 
 le reformers had raised, such as the relation betwecnlhe university 
@@ -433,7 +433,7 @@ make it possible for the Government to save hundreds and thou-
 OXFORD— DARK AND BRIGHT 209 
 
 sands in soldiers and policemen, and millions in wars and sup- 
-pression of rebellions * 
+pression of rebellions \* 
 
 Muller had also thought out how the emergence of such a class 
 of Indians could be promoted It was that young Englishmen 
@@ -570,7 +570,7 @@ he said, 'that meets these pertinent queries is the shameful one that
 Oxford is of the world and that in the world’s ways the ideally best 
 must hide its shamefaced beauty before the power of position, the 
 scorn of vested interests, the laziness of the luxurious, the intrigues 
-of self-seekers, the worshippers of material prestige .* 
+of self-seekers, the worshippers of material prestige .\* 
 
 Strong as this was, it was also the view of the life and aspirations 
 
@@ -719,7 +719,7 @@ all egoism Pattison in everything was an uninhibited egoist, and
 even his affection for Meta Bradley was a projection of his self-love 
 flattered by the adoration of a weak woman His wife described her 
 horror of his last days in the following words ‘Let not my last days 
-be like his * The moral rum is awful ’ 
+be like his \* The moral rum is awful ’ 
 
 Jowett was the opposite He inspired affection and could also show 
 
@@ -862,7 +862,7 @@ though he admitted Jowett had behaved well, he still could not
 quite forgive him He observed T cannot understand him Perhaps 
 we make idols of our friends, and if they break we cannot bear it ’ 
 There is finally the cool statement about Jowett in Muller’s auto- 
-biography, published after his death* 
+biography, published after his death\* 
 
 Jowett knew quite well, and he did not hesitate to say so, that to do 
 much good in this world, you must be a very able and honest man, 
@@ -902,7 +902,7 @@ for a kind of intellectual communication at Oxford which its society
 regarded as ‘shop-talk’ Even at the age of forty-three Max Muller 
 showed a metaphysical proclivity which Oxford, with all its Hegeli- 
 zation, had no taste for Thus in 1867 Muller was complaining to 
-Professor Bernays* 
+Professor Bernays\* 
 
 What I miss most here in Oxford is stimulating intercourse in literary 
 and scientific circles That is entirely wanting, especially in my special 
@@ -1164,7 +1164,7 @@ usefully engaged in studying the present condition of the Hindu
 
 mind, would content himself with a rapid glance.’ 
 
-8 * 
+8 \* 
 
 
 
@@ -1263,7 +1263,7 @@ MA
 At once Max Muller’s supporters issued a counterblast in almost 
 the same words, but with tell-tale modifications, such as ‘By 
 general consent one is pronounced a Scholar of world-wide reputa- 
-tion, the other a Scholar well known to his Friends and Pupils * 
+tion, the other a Scholar well known to his Friends and Pupils \* 
 
 But even from the missionary point of view, both Dr Pusey and 
 the Bishop of Calcutta wrote in favour of Muller Pusey informed 
@@ -1273,7 +1273,7 @@ appointment had arisen, and as a voter he had then given weight to
 it On the final notices of the election which he forwarded, he wrote 
 m his own hand. ‘Max Muller has already done more for the 
 Gospel in India than any other Sanskrit scholar, by opening to the 
-missionaries their [the Hindus’] sacred books * 
+missionaries their [the Hindus’] sacred books \* 
 
 The Bishop of Calcutta wrote among other things that ‘it would 
 
@@ -1544,7 +1544,7 @@ was also’ behind his resignation he admitted to his friend George
 von Bunsen, son of his old patron and helper, in a letter written in 
 January 1876, in which he said ‘I will tell you viva voce why I 
 have finally made up my mind to leave Oxford Clerical intrigues 
-and petty jealousies, alas* were partly the reason ’ 
+and petty jealousies, alas\* were partly the reason ’ 
 
 Even this was not the whole story What brought his sense of 
 grievance against Oxford to a head and finally induced him to act 
@@ -1596,13 +1596,13 @@ tion in a sacred cause, the cause of real learmng against the shallow
 pretence of it, a hundred would accuse you of petty personal 
 jealousy And what a triumph your enemies will have then 1 ' 
 Stanley wrote Tf you have on general grounds determined that 
-you ought to pass your remaining years (and, oh* may they be 
+you ought to pass your remaining years (and, oh\* may they be 
 many!) in Germany, much as I shall regret it I shall have nothing 
 to say against it But that you should leave Oxford on the ground 
 that an undeserved honour has been bestowed on Momer Williams 
 seems to be both insufficient in itself and unjust to yourself 9 Dean 
 Liddell, as soon as he heard about Max Muller's intention from 
-Rolleston, wrote to him* 
+Rolleston, wrote to him\* 
 
 It grieves me much to hear you say that in M really contemplates 
 resignation It appears to me that he, at once, greatly overrates the 
@@ -1694,7 +1694,7 @@ we can, while we can
 Max Muller was informed of the decision and wrote to the Vice- 
 Chancellor in the most grateful terms, saying that he looked for- 
 ward with great satisfaction to spending the remaimng years of his 
-life at Oxford * 
+life at Oxford \* 
 
 On hearing of it Froude wrote gladly. ‘My dear Max, 
 
@@ -1709,7 +1709,7 @@ this evening’s programme, and to express to him the very great
 pleasure it would give the Club if he were able to be present this 
 evening 
 
-* The post of Deputy Professor went to Archibald Henry Sayce, in A , at the 
+\* The post of Deputy Professor went to Archibald Henry Sayce, in A , at the 
 time Fellow of Queen’s, an Orientalist and philologist, who became a leading 
 Assynologist later The salary of the Professorship was £600 a year So the 
 Deputy got £300 

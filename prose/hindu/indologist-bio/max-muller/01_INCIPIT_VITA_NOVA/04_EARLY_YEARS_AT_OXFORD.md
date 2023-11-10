@@ -198,7 +198,7 @@ There were great festivities for the end of the term Guizot was here,
 
 two sons of Mettermch, Baron von Huge!, and many of the best English 
 
-4 * 
+4 \* 
 
 
 
@@ -339,7 +339,7 @@ of Balliol
 But it was not solely his learning that attracted people to him 
 He had considerable social talent, and was a witty speaker and 
 conversationalist Unfortunately, no record of this survives All the 
-formal books by him are serious and solemn* because he did not like 
+formal books by him are serious and solemn\* because he did not like 
 persiflage or even wit in serious discussion. He once said: ‘People 
 
 
@@ -428,7 +428,7 @@ compositions were always revised by Palgrave in the kindest possible
 manner, and it was this help which enabled Muller to write the 
 language so well and to use it for all his major works When he left 
 Oxford tojom the Education Department in London, Muller missed 
-him very much None the less, he gave him news of Oxford* 
+him very much None the less, he gave him news of Oxford\* 
 
 Oxford is flourishing again Stanley, Jowett, etc , are up Old Froude, 
 however, has left a blank, and if you saw how they have pulled down 
@@ -733,7 +733,7 @@ never hear of it, and added sarcastically ‘It is no use talking about
 Vaterland and Hetmweh Why, all young men who go to India never 
 see their fathers and mothers again My father and mother died 
 before I came back That cannot be helped But that is your look- 
-out You will never go to Germany with my permission * 
+out You will never go to Germany with my permission \* 
 
 The next day Wilson relented a little, and Max Muller felt en- 
 couraged to toy with the idea of being able to edit the Rig-Veda from 
@@ -894,7 +894,7 @@ will laugh at this, but had you been living for six or seven years
 among strangers you would understand how delightful it is to see 
 well-known faces and well-known streets and houses round one If I 
 had independent means, I would live in Dessau, and by choice in 
-my grandfather’s house with the garden, where I know every tree * 
+my grandfather’s house with the garden, where I know every tree \* 
 The high grim busts of the Caesars on the railing of the Sheldo- 
 man must have smiled sardonically, for Oxford was soon to claim 
 him permanently And when in late life he went to his birthplace 
@@ -1008,7 +1008,7 @@ tenance full of animation, and it was difficult to reconcile his youth-
 ful appearance with his already great reputation ’ 
 
 On Max Muller the impression was decisive Years after he told 
-his wife that as soon as he saw her he felt ‘That is my fate * I have 
+his wife that as soon as he saw her he felt ‘That is my fate \* I have 
 seen the journal which Georgina Grenfell kept for three years to set 
 down her agony of mind at not being allowed by her father to marry 
 him I read the following in his own handwriting ‘I loved you from 
@@ -1074,7 +1074,7 @@ that he was not altogether surprised, for he had had a full account of
 what had taken place at Oxford He had to say something, but also 
 felt that it was hard indeed to know what to say when the means of 
 coming to a right judgement were so small, and a mistake could be 
-dangerous* 
+dangerous\* 
 
 He could not hold out any immediate hope for his friend, and felt 
 unhappy T am writing like an icicle, 9 he said, 'as if the east wmd 
@@ -1189,7 +1189,7 @@ to broach the question with Miss Grenfell So Froude wrote to her,
 and on February 9 he informed his friend T have written I 
 shall get an answer on Saturday and you will perhaps therefore on 
 Sunday learn all you desire You know my heart is with you God 
-bless you, dear fellow, in your future whatever it is to be * Then he 
+bless you, dear fellow, in your future whatever it is to be \* Then he 
 gave a very curious warning, and that about his brother-in-law 
 Charles Kingsley ‘Avoid Kingsley in this matter, Don’t breathe 
 it to him ’ 

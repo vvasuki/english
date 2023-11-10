@@ -209,7 +209,7 @@ town and inhabitants,
 
 19 ff 
 
-M in *s life at, 21 ff , 
+M in \*s life at, 21 ff , 
 MM revisits, no 
 Deutsche Liebe (M in ’s 
 novel), 13, 71, 174 ff 
@@ -248,11 +248,11 @@ Emilie, Cousin (Baroness
 Stolzenberg), 36 
 England 
 
-M in *s arrival m, 53 
+M in \*s arrival m, 53 
 Germany and, 105-06, 
 109, 231 
 
-M in *s opinion, 107 
+M in \*s opinion, 107 
 English in India, 342 
 English language, 55, 100, 
 227 
@@ -682,7 +682,7 @@ education, 25, 27 IT ,
 33 ff , 78 ff 
 English language, 
 
-M in *s knowledge 
+M in \*s knowledge 
 of, 55, 100, 227 
 faith, 70 ff , 73, 277 ff , 
 374, 377, 381 
@@ -838,7 +838,7 @@ Taylonan Institute,
 Plumptree, Dr F , 62 
 Poetry 
 
-M in *s taste 111, 291 
+M in \*s taste 111, 291 
 political role of scholars, 
 
 239 
@@ -967,7 +967,7 @@ method of learning,
 184, 224 
 
 Mill, James on, 132 
-M in *s history, 130, 
+M in \*s history, 130, 
 
 143 ff 
 
@@ -1079,7 +1079,7 @@ i37> 290
 
 importance, 135 ff 
 interpretations, 258 
-M in *s position, 347 
+M in \*s position, 347 
 M in ’s work, 143 ff 
 
 

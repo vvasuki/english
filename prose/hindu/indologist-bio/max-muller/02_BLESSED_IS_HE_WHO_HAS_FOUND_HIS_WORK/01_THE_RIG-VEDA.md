@@ -136,7 +136,7 @@ what might be called the manifesto of a new Renaissance for
 Europe from India 
 
 If the study of the Indian language [he wrote] were able to find only a 
-few men to pursue it* Thus in Italy and in Germany in the fifteenth 
+few men to pursue it\* Thus in Italy and in Germany in the fifteenth 
 and sixteenth centuries was seen a sudden outburst of an ardent love 
 for Greek and Latin literature within a very short period of time, so 
 that through a rediscovered knowledge of antiquity the whole aspect 
@@ -226,7 +226,7 @@ whom the proud Weimar ladies called his Tatter Half’ Perhaps he
 saw in the unsophisticated hermitage girl that Sakuntala was, an 
 etherealized Christiane 
 
-5 * 
+5 \* 
 
 
 
@@ -254,7 +254,7 @@ ficance of Hindu civilization Sanskrit was represented as the
 mother of all languages The beginnings of all language, of all 
 thought and of all religion were traced back to India F Schlegel 
 even thought that the architectural monuments of Hindu India were 
-as old as the Egyptian * 
+as old as the Egyptian \* 
 
 Bearing this attitude in mmd, in 1840 H H Wilson, the leading 
 English Sanskritist of his time, who distrusted the German school of 
@@ -316,7 +316,7 @@ established This idealism is found in India, but only as an idealism of
 imagination In India the state of absolute being is presented as in 
 the ecstatic state of a dreaming condition, and therefore in India was 
 to be found, not the dreaming of an actual individual, but the dreaming 
-of the absolute spirit* 
+of the absolute spirit\* 
 
 The German historical reconstruction of India was not quite this 
 castle in the very rarefied air of German philosophy Its feet at least, 
@@ -348,7 +348,7 @@ philology was being retarded by an affectation of learned pedantry,
 which had done so much mischief to Greek and Latin scholarship 
 and which he had resented in his university days. He admitted that 
 the specialist in Sanskrit had much to learn from the methods of a 
-Bentley or a Hermann, but he also observed* 
+Bentley or a Hermann, but he also observed\* 
 
 But in Greek and Latin scholarship the distinction between useful and 
 useless knowledge has almost disappeared, and the real objects of the 
@@ -1021,7 +1021,7 @@ appointed Deputy Taylorian Piofessor and had to give up the pro-
 ject for want of time. However, he adapted parts of the intended 
 prolegomena into an essay for the Prix Volney awarded by the 
 Institute of France The competition was hard, but Burnouf and 
-other friends worked foi him, and e,*rly in. October 1849 Burnouf 
+other friends worked foi him, and e,\*rly in. October 1849 Burnouf 
 
 
 
@@ -1067,7 +1067,7 @@ According to him the book was of so high an order that it was not
 likely to be surpassed or even equalled for a long time Wilson 
 wrote Tt is not possible in a brief survey like the present to render 
 justice to a work every page of which teems with information that 
-no other scholar ever has, or could have, placed before the public * 
+no other scholar ever has, or could have, placed before the public \* 
 
 
 
@@ -1091,7 +1091,7 @@ on December 7, 1864, he said ‘I still have a great work to do, and
 I often feel that I might have done a great deal more, if I kept the 
 one object of my life more steadily in view I sometimes wish you 
 would help me more in doing that, and insist on my working harder 
-at the Veda and nothing else I hope I shall finish that work * Then 
+at the Veda and nothing else I hope I shall finish that work \* Then 
 he explained to her how his edition and translation of the Veda 
 was likely to help the Hindus in recovering the original spirit of 
 their religion (see p 90) and observed ‘If those thoughts pass 
@@ -1131,8 +1131,8 @@ Yajnasya dev am ntvtjam — hotaram ratnadhatamam
 There was a burst of merriment when these queer sounds came from 
 the machine, but a deep silence when Max Muller explained that we 
 had heard words from the oldest hymn in the world — the first (if I 
-remember rightly*) in the Vedas ‘Agm I worship — the chief priest of 
-the sacrifice — the divine priest — the invoker — conferring great wealth * 
+remember rightly\*) in the Vedas ‘Agm I worship — the chief priest of 
+the sacrifice — the divine priest — the invoker — conferring great wealth \* 
 
 And then young people gathered round the smiling scholar to ask 
 questions Moncure Conway did not hear exactly what Muller said 
@@ -1158,5 +1158,5 @@ cir Constances y il a apporte au service de cette cause le tribut d y un art et
 d’une science egales ’ 
 
 
-* It is the first verse of the Rig-Veda 
+\* It is the first verse of the Rig-Veda 
 

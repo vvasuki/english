@@ -5,7 +5,7 @@ title = "+00"
 
 By the same Author 
 
-* 
+\* 
 
 AUTOBIOGRAPHY 
 OF AN UNKNOWN INDIAN 
@@ -50,7 +50,7 @@ Chatto Sc Windus Ltd,
 40 William IV Street, 
 London WC 2 N 4 DF 
 
-* 
+\* 
 
 Clarke, Irwin & Co Ltd, 
 Toronto 

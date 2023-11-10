@@ -31,7 +31,7 @@ Max Muller belonged to this type, just as his respected and elder
 contemporary, Darwin, belonged to the other type Muller was 
 naturally endowed with an immense zest for life, and also with an 
 overmastering impulse to love He believed the two to be connected 
-m some way, and at the very end of his life wrote to his son* 
+m some way, and at the very end of his life wrote to his son\* 
 
 You certainly have grown older and more serious — no wonder, con- 
 sidering what you have had to go through You’ll understand now my 
@@ -111,7 +111,7 @@ hard work yet I feel that suffering with her is worth more than all
 the happiness of the world with others I pray to God that it may all 
 pass over, but if it must be, we both feel that it is meant as a whole- 
 some trial, and that we must thank God for what He gives and what 
-He takes from us * 
+He takes from us \* 
 
 He described his state of mind when his wife was sufficiently 
 recovered, and wrote on February 6, 1861 . 
@@ -119,7 +119,7 @@ recovered, and wrote on February 6, 1861 .
 Darling baby I hardly dare to call her ours as yet, and yet what can 
 we call ours if God did not vouchsafe it to us from day to day ? And yet 
 it is so difficult to give oneself up entirely to Him, to trust everything 
-to His Love and Wisdom I thought I could say ‘Thy will be done*, 
+to His Love and Wisdom I thought I could say ‘Thy will be done\*, 
 but when you were so ill I found I could not — my own will struggled 
 against His will — I prayed as we ought not to pray — and yet He heard 
 me My darling, it is so difficult not to grow very fond of this life and 
@@ -133,7 +133,7 @@ mood Palgrave’s father had died, and he wrote.
 I know from experience that in the presence of great grief I have nothing 
 to say, and for a loss like yours there is no comfort till we can say by 
 
-ourselves, ‘Thy will be done I * * * 5 . I remember but one time in my whole 
+ourselves, ‘Thy will be done I \* \* \* 5 . I remember but one time in my whole 
 
 life when I could not say that . when my wife, whom I had loved for 
 
@@ -141,7 +141,7 @@ six years without the faintest hope of ever calling her my wife, when
 she, after one year of a blessed life, was for two days given up as hope- 
 less by the doctors, then I broke down, and I could not say, ‘Thy will 
 
-be done*. 
+be done\*. 
 
 
 
@@ -293,7 +293,7 @@ should not like to live in London, no, not for much money, — this
 noise, this skirmish, this dming out and gossiping, this trying to out- 
 do each other in pretence and conceit, is quite sickening ’ 
 
-Again, learning of the death of Dickens, he wrote* ‘Poor Charles 
+Again, learning of the death of Dickens, he wrote\* ‘Poor Charles 
 Dickens 1 It is a great loss — but I believe his life was not happy in 
 spite of all his brilliant success They call him vulgar, but in his 
 abstaining from mixing in what people call good society, I think he 
@@ -439,9 +439,9 @@ The loss of his daughter completely broke Max Muller, and
 made him incapable of relying on his own mental resources in 
 order to live So within a few days of his bereavement he wrote to 
 his friends and relatives in identical language . ‘My whole life now 
-belongs to her and her memory, till our long journey is over * It was 
+belongs to her and her memory, till our long journey is over \* It was 
 not said under the immediate shock of grief This became his 
-settled mood A year later he wrote to his wife * ‘ One can never believe 
+settled mood A year later he wrote to his wife \* ‘ One can never believe 
 m life again. One does what is one’s duty, but the joy of life of which 
 we had so much, is all gone It is not that one does not feel grateful 
 for what life is, — but one always asks — For how long ? This has 
@@ -741,7 +741,7 @@ In writing these Lectures,
 
 They are now dedicated 
 As a Memorial 
-Of a Father’s undying Love * 
+Of a Father’s undying Love \* 
 
 Thus have I fulfilled something of what I felt I ought to do for you 
 when you were taken from us, my dear Child — What I cannot do for 
@@ -872,7 +872,7 @@ festivals, admired by the best judges
 
 To his second daughter, now the eldest, the intellectual Mary, 
 who w T as engaged to be married to a young Oxford don whom she 
-passionately loved, he wrote* 
+passionately loved, he wrote\* 
 
 I wish you had been able to see your dear grandmother once more if 
 only as I saw her, sleeping on flowers, covered with palm-branches, 
@@ -1052,7 +1052,7 @@ shared many sorrows, and even now, under this new blow, it is the
 misery of that poor husband and the grief of my wife that chokes 
 the heart far more than my own distress ’ 
 
-Thirteen years later he wrote to his son* ‘I wonder whether you 
+Thirteen years later he wrote to his son\* ‘I wonder whether you 
 remember the anniversary of today when dear Mary was taken from 
 
 
@@ -1063,7 +1063,7 @@ remember the anniversary of today when dear Mary was taken from
 SCHOLAR EXTRAORDINARY 
 
 
-ns Who could understand it and account for it * And yet we must 
+ns Who could understand it and account for it \* And yet we must 
 learn to see a meaning in everything, we must believe that as it was 
 it was right 5 
 
@@ -1077,5 +1077,5 @@ many happy hours
 
 'And yet "Death is not death, if it gives us to those whom we have 
 loved and lost, for whom we have lived, and for whom we long to 
-live again ”* 
+live again ”\* 
 

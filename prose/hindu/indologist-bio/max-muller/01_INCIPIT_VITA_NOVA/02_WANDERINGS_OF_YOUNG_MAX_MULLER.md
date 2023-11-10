@@ -205,7 +205,7 @@ Orientalist Colebrooke, and wanted to learn more, even asking
 Muller if he could explain a text At last he inquired where Muller 
 lived, told him that he had known his father as a poet who had 
 written on Greece and worked on Homer, and dismissed him with 
-a cordial 4 Come again soon* Muller attended Schelhng’s lectures, 
+a cordial 4 Come again soon\* Muller attended Schelhng’s lectures, 
 and even translated a portion of one of the Upanishads for him 
 The first few months of Mullet’s stay in Berlin were very pleasant 
 socially. His connexions, the Hakes and the Krugeis, regularly 
@@ -322,7 +322,7 @@ Relief came to Max Muller within a month or so in the shape of
 his capricious friend, Baron Hagedorn He suddenly appeared in 
 Berlin, and invited Max to stay with him in Paris and carry on his 
 Sanskrit studies Max immediately fell in with the proposal, and on 
-his twenty-first birthday, December 6, 1844, wrote to hus mother* 
+his twenty-first birthday, December 6, 1844, wrote to hus mother\* 
 
 My dearly loved Mother, As I am sitting here quite alone on my birth- 
 day I must give myself at least the delight of writing to those who love 
@@ -467,7 +467,7 @@ own hands whether I should swim or sink ’
 He kept his resolution and swam, but it was at first like the swim- 
 ming of a shipwrecked sailor who clings to a plank without seeing 
 anybody near him, and then suddenly catches sight of a rescuing 
-boat* All the early openings in his career came unexpectedly, and 
+boat\* All the early openings in his career came unexpectedly, and 
 were almost like windfalls While waiting for them he sought relief 
 from his anxieties in work, and for his sorrow at separation from his 
 family in religion and philosophy As he wrote to his mother 
@@ -808,7 +808,7 @@ Russell as a newspaper reporter got free tickets to concerts and
 theatres, and the two went night after night to Drury Lane, the 
 Haymarket, the Adelphi, Her Majesty’s, Covent Garden and others 
 Muller’s enjoyment of the opera was intense, and after seeing the 
-Italian opera he wrote to his mother * 
+Italian opera he wrote to his mother \* 
 
 A friend took me to the Italian Opera, which I had not yet seen either 
 here or in Pans It was wonderful A larger house than I have ever 
@@ -894,7 +894,7 @@ directly render a great service to Indian letters if, with the benevo-
 lent liberality with which he meets all those who ask his support, he 
 makes it possible for you to stay in London as long as the task of 
 publishing your Rig-Veda with its commentaries and indispensable 
-indices may require * To his mother Muller gave an estimate of five 
+indices may require \* To his mother Muller gave an estimate of five 
 years, and said that his work was full of interest, and kept him 
 straight, but he also added ‘Yet sometimes one longs for more in 
 life than this everlasting struggle ’ 
@@ -1077,7 +1077,7 @@ thought that the uncertainty was making him unfit to do any work
 As he wrote to his mother 'The whole month has gone in hopes, 
 expectations, disappointments, and rejoicings, and though it is 
 possible that I might hear today that all is settled, it may dawdle on 
-to next year, and even fail entirely * But he had confidence in Bun- 
+to next year, and even fail entirely \* But he had confidence in Bun- 
 sen It did dawdle on, to the April of 1847, but on April 15 he in- 
 formed his mother joyfully that the matter was decided He could 
 hardly believe that the struggle was ending and the independence 
@@ -1122,7 +1122,7 @@ saw, and informed his mother ‘I have seen the most interesting and
 beautiful city in Europe The whole town is of the Middle Ages, 
 and consists almost entirely of churches, monasteries (now colleges), 
 castles, and towers, all in old English or Gothic, and the whole life 
-is of the Middle Ages * What struck him no less strongly was the 
+is of the Middle Ages \* What struck him no less strongly was the 
 contrast presented by the students and teachers going about in 
 their black gowns, to what he had seen in German university 
 towns like Leipzig or Jena where the students walked about in 
@@ -1243,7 +1243,7 @@ balls at the houses of his English friends, and danced away in his
 old coat, finding the English girls to be very beautiful and pleasant 
 
 He wrote to his mother that 'one hardly sees a single ugly face in a 
-3* 
+3\* 
 
 
 
@@ -1278,7 +1278,7 @@ days were bright for me, and now, when those young and old faces,
 whether undergraduates or archbishops, rise up again before me, I 
 being almost the only one left of that happy company, I ask again, 
 ‘Did they also belong to a mere dreamland, they who gave life to 
-my hfe, and made England my real home ?* 
+my hfe, and made England my real home ?\* 
 
 He was noticed by the town, as well as the gown, as a rare and 
 exotic bird in the streets As he passed among them he observed 
@@ -1332,7 +1332,7 @@ it is also terrifyingly true that the first problem for a man is to re-
 main alive in the world before he can even dieam of conquering it 
 So livelihood and vocation are always at loggerheads In this situa- 
 tion most men concentrate on livelihood, raising it if they can to 
-security and comfort, or finally to affluence and luxury* A minority, 
+security and comfort, or finally to affluence and luxury\* A minority, 
 however, stick to vocation The former make their work conform to 
 their means of livelihood, the latter contrive to gam livelihood out 
 of their vocation. Certainly, it is the most difficult thing in life to 

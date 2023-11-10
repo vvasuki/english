@@ -138,7 +138,7 @@ He always made a distinction between the Christ of faith and the
 Christ of the Church and formal theology He set forth the distinc- 
 tion in a letter he wrote to his wife after she and his second daughter, 
 Mary, had seen the Passion Play at Oberammergau in 1880. He 
-wrote* ‘It must have been very powerful — and I feel sure just now 
+wrote\* ‘It must have been very powerful — and I feel sure just now 
 nothing is more wanted than to be powerfully impressed with the 
 
 
@@ -212,7 +212,7 @@ hardly better than the Buddhistic Nirvana
 
 But this annihilation of the creature was not the will of the Creator, 
 for He had created it ‘God makes Himself into man/ says St Augus- 
-tine, ‘not man into God * Mysticism should only be, as the ordeal by 
+tine, ‘not man into God \* Mysticism should only be, as the ordeal by 
 fire, to steel the human soul, not to dissolve it away into vapour like 
 boiling water in a cauldron He who had perceived the nothingness of 
 Self should also recognize this Self as a reflex of the truly divme Self 
@@ -573,9 +573,9 @@ on Muller’s, a feeling that new fields were waiting to be prospected
 which would yield gold if only there were the people to dig This 
 
 general inclination took a practical form when Muller heard of the 
-, c* 1( j nt 
+, c\* 1( j nt 
 
-‘ » ' * ' ■' »r > held the professorship from 1841 It had not 
+‘ » ' \* ' ■' »r > held the professorship from 1841 It had not 
 
 been easy to institute it, for at that time there was a good deal of 
 
@@ -716,7 +716,7 @@ When Max Muller settled at Oxford at the age of twenty-four,
 music was still an active pursuit for him, but in the next five years 
 he found that he had to be economical of his time and he gave up 
 many things which were a pleasure to him So in November 1854 
-he wrote to his mother about his musical interest* 
+he wrote to his mother about his musical interest\* 
 
 One’s delight in music always lasts, and I owe the old instrument so 
 much — not only the enjoyment one has had, and the use my music 
