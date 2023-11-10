@@ -1400,7 +1400,7 @@ I cannot resist the temptation of writing to you, although I fear you may have q
 
 † Appendix,. No. 9. 
 
-SIR WILLIAM JOKES. 
+
 
 [[77]]
 
@@ -3346,7 +3346,7 @@ I am,
 
 I 
 
-SIR WILLIAM JOKES. 
+
 
 { 
 
@@ -4554,7 +4554,7 @@ When the sessions are over, I shall hasten to Chilbelton, and perform an old pro
 
 amused, nor kept long in suspense; and, indeed, 
 
-SIR WILLIAM JOMBS. 
+
 
 [[275]]
 
@@ -5269,10 +5269,7 @@ They who have perused the description of Joanna, by Sir William Jones, will regr
 The little elegant tale in verse, under the title of The Enchanted Fruit, or Hindu Wife, was composed during his residence in Beyhar, and affords a proof of the success of his enquiries, as well as of his skill in the happy application of the intelligence obtained by them. 
 
 The other production was a Treatise on the Gods of Greece, Italy, and India, which he afterwards revised, and presented to the society. The design of this essay was to point out a resemblance, too strong to have been accidental, between thé popular worship of the old Greeks and Italians, and that of the Hindus, and between their strange religion and that of Egypt, China, Persia, Phrygia, Phœnicia, and Syria, and even remoter nations. The proof of such resemblance, if satisfactorily established, would, as he remarks, au- 
-
-
-
-320 thorize an inference of a general union and affinity between the most distinguished inhabitants of the primitive world, at the time when they deviated, as they did too early deviate, from the rational adoration of the only true God. 
+[[320]] thorize an inference of a general union and affinity between the most distinguished inhabitants of the primitive world, at the time when they deviated, as they did too early deviate, from the rational adoration of the only true God. 
 
 To this journey, under Providence, he was in all probability indebted for the preservation of his life, which, without it, might have fallen a sacrifice to the accumulation of disease: after his arrival in Calcutta, his health was completely restored. 
 
@@ -5444,13 +5441,9 @@ Sir William Jones to Dr. Patrick Russel.
 
 Sept. 8, 1785. 
 
-Your two kind letters found me overwhelmed with the business of a severe sessions and term, which lasted two months, and fatigued me so much that I was forced to hasten from Calcutta as fast as winds and oars could carry me. I am now at the ancient university of Nadeya, where I hope to learn the rudiments of that venerable and interesting language which was once vernacular in all India, and in both the peninsulas with their islands. Your pursuits must be delightful, and I shall be impatient to see the fruit of your learned labours. Our society goes on slowly; and hot-bed fruits 
+Your two kind letters found me overwhelmed with the business of a severe sessions and term, which lasted two months, and fatigued me so much that I was forced to hasten from Calcutta as fast as winds and oars could carry me. I am now at the ancient university of Nadeya, where I hope to learn the rudiments of that venerable and interesting language which was once vernacular in all India, and in both the peninsulas with their islands.+++(5)+++ Your pursuits must be delightful, and I shall be impatient to see the fruit of your learned labours. Our society goes on slowly; and hot-bed fruits are not so good to my taste as those whith ripen naturally.
 
 [[330]]
-
-
-
-are not so good to my taste as those whith ripen naturally. 
 
 Dr. Koenig's loss will be severely felt; he was a valuable man, with as much simplicity as inture herself, whose works he studied. Do you know when his books are to be disposed of? I should wish to purchase his Linnas. 
 
@@ -5840,11 +5833,11 @@ Various causes contribute to render me a bad correspondent, particularly the dis
 
 I am tolerably strong in Sanscrit, and hope to prove my strength soon by translating a law-tract of great intrinsic merit, and extremely curious, which the Hindus believe to be almost as old as the Creation. It is ascribed to Menu, the Minos of India, and like him, the son of Jove. My present study is the original of Bidpa's fables, 
 
-SIR WILLIAM ZOMRS. 
+
 
 [[353]]
 
-called Hitopadesa,\* which is a charming book, and wonderfully useful to a learner of the language. I congratulate you on the complation of your two works, but exhort you to publish them. Think how much fame Koenig lost by delaying bis publications. God knows whether sny use, bonourable to his memory, will be made of his manuscripts. Think of Mr. D'Herbalot, whose posthumous work, like most others, had the fate of being incorrectly published. Printing is dear at Calcutta ; but if government would print your works (as they pught,) I could cheerfully superintend commas and colons. I am delighted with your botanical pursuits. They talk of a public garden on the banks of the River near Calcutta. How I wish, for our sakes, you could be allured from the Sircars! I long to visit them, however, and to view your collections; though I must be so honest as to own, that accurate botanical descriptions give me more pleasure than an herhal, I mean where the fresh plants can be examined. For this reason I have not begun to collect specimens, but describe as well as I can; and for brevity, in coarse Latin. Lady Jones assists me by her accuracy in drawing and colouring. 
+called Hitopadesa,\* which is a charming book, and wonderfully useful to a learner of the language. I congratulate you on the complation of your two works, but exhort you to publish them. Think how much fame Koenig lost by delaying bis publications. God knows whether any use, honourable to his memory, will be made of his manuscripts. Think of Mr. D'Herbalot, whose posthumous work, like most others, had the fate of being incorrectly published. Printing is dear at Calcutta ; but if government would print your works (as they pught,) I could cheerfully superintend commas and colons. I am delighted with your botanical pursuits. They talk of a public garden on the banks of the River near Calcutta. How I wish, for our sakes, you could be allured from the Sircars! I long to visit them, however, and to view your collections; though I must be so honest as to own, that accurate botanical descriptions give me more pleasure than an herhal, I mean where the fresh plants can be examined. For this reason I have not begun to collect specimens, but describe as well as I can; and for brevity, in coarse Latin. Lady Jones assists me by her accuracy in drawing and colouring. 
 
 The province of Chatigan (vulgarly Chitigong) is a noble field for a naturalist. It is so called, I believe, from the chatag, which is the most beautiful little bird I ever saw. The hills and woods 
 
@@ -6422,7 +6415,7 @@ From a series of letters addressed to the compiler of these Memoirs on the subje
 
 At the period when this work was undertaken by Sir William Jones, he had not resided in Indis 
 
-SIR WILLIAM JOKES. 
+
 
 [[891]]
 
@@ -6812,7 +6805,7 @@ It has already been mentioned, that, in the earliest periods of his education, S
 
 In the beginning of 1789, the first volume of the Researches of the society was published. The selection of the papers was left to the judgment of Sir William Jones, and he undertook the laborious and unpleasant office of superintending the printing. A third part of the volume, the most interesting as well as instructive, is occupied by the contributions of the president." 
 
-SIR WILLIAM JOMIS. 
+
 
 [[417]]
 
