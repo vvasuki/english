@@ -76,6 +76,30 @@ all of which, indeed, are admirable,
 the method of instructing by apologues,  
 the decimal scale adopted now by all civilized nations,  
 and the game of Chess, on which they have some curious treatises;  
-but, if their numerous works on Grammar, Logick‚ Rhetorick, Musick, all which are extant and accessible, were explained in some language generally known, it would be found, that they had yet higher pretensions to the praise of a fertile and inventive genius. Their lighter Poems are lively and elegant; their Epick, magnificent and sublime in the highest degree; their Purána's comprise a series of mythological Histories in blank verse from the Creation to the supposed incarnation of BUDDHA; and their Védas, as far as we can judge from that compendium of them, which is called Upanishat, abound with noble speculations in metaphysicks, and fine discourses on the being and attributes of GOD. Their most ancient medical book, entitled Chereca, is believed to be the work of SIVA ; for each of the divinities in their Triad has at least one sacred composition ascribed to him; but, as to mere human works on History and Geography, though they are said to be extant in Cashmír, it has not been yet in my power to procure them. What their astronomical and mathematical writings contain, will not, I trust, remain long a secret: they are easily procured, and their importance cannot be doubted. The Philosopher, whose works are said to include a system of the universe founded on the principle of Attraction and the Central position of the sun, is named YAVAN ACHÁRYA, because he had travelled, we are told, into Ionia: if this be true, he might have been one of those, who conversed with PYTHAGORAS ; this at least is undeniable, that a book on astronomy in Sanscrit bears the title of Yavana Jática, which may signify the Ionic Sect; nor is it improbable, that the names of the planets and Zodiacal stars, which the Arabs borrowed from the Greeks, but which we find in the oldest Indian records, were originally devised by the same ingenious and enterprising race, from whom both Greece and India were peopled; the race, who, as DIONYSIUS describes them, 'first assayed the deep, 'And wafted merchandize to coasts unknown,
+but, if their numerous works on Grammar, Logick‚ Rhetorick, Musick, all which are extant and accessible,  
+were explained in some language generally known,  
+it would be found, that they had yet higher pretensions to the praise of a fertile and inventive genius.  
+Their lighter Poems are lively and elegant;  
+their Epick, magnificent and sublime in the highest degree;  
+their Purána's comprise a series of mythological Histories in blank verse  
+from the Creation to the supposed incarnation of BUDDHA;  
+and their Védas, as far as we can judge from that compendium of them, which is called Upanishat,  
+abound with noble speculations in metaphysicks, and fine discourses on the being and attributes of GOD.  
+Their most ancient medical book, entitled Chereca, is believed to be the work of SIVA ;  
+for each of the divinities in their Triad has at least one sacred composition ascribed to him;  
+but, as to mere human works on History and Geography,  
+though they are said to be extant in Cashmír,  
+it has not been yet in my power to procure them.  
+
+What their astronomical and mathematical writings contain, will not, I trust, remain long a secret:  
+they are easily procured, and their importance cannot be doubted.  
+The Philosopher, whose works are said to include a system of the universe  
+founded on the principle of Attraction and the Central position of the sun,  
+is named YAVAN ACHÁRYA, because he had travelled, we are told, into Ionia:  
+if this be true, he might have been one of those, who conversed with PYTHAGORAS ;  
+this at least is undeniable, that a book on astronomy in Sanscrit bears the title of Yavana Jática, which may signify the Ionic Sect;  
+nor is it improbable, that the names of the planets and Zodiacal stars, which the Arabs borrowed from the Greeks, but which we find in the oldest Indian records,  
+were originally devised by the same ingenious and enterprising race, from whom both Greece and India were peopled;  
+the race, who, as DIONYSIUS describes them, 'first assayed the deep, 'And wafted merchandize to coasts unknown,
 
 'Those, who digested first the starry choir, 'Their motions mark'd, and call'd them by their names.' Of these cursory observations on the Hindus, which it would require volumes to expand and illustrate, this is the result: that they had an immemorial affinity with the old Persians, Ethiopians, and Egyptians, the Phenicians, Greeks, and Tuscans, the Scythians or Goths, and Celts, the Chinese, Japanese, and Peruvians; whence, as no reason appears for believing, that they were a colony from any one of those nations, or any of those nations from them, we may fairly conclude that they all proceeded from some central country, to investigate which will be the object: of my future Discourses ; and I have a sanguine hope, that your collections during the present year will bring to light many useful discoveries; although the departure for Europe of a very ingenious member, who first opened the inestimable mine of Sanscrit literature, will often deprive us of accurate and solid information concerning the languages and antiquities of India.
