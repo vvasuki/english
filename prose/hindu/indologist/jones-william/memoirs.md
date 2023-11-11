@@ -1,12 +1,12 @@
 +++
-title = "william-jones-life"
+title = "Memoirs"
 +++
 
 
 MEMOIRS 
 OF 
 THE LIFE, 
-WRITINGS Aand correSPONDENCE, 
+WRITINGS And correSPONDENCE, 
 OF 
 
 SIXTH EDITION. 

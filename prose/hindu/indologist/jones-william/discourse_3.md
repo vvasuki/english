@@ -1,0 +1,476 @@
++++
+title = "Discourse 3"
++++
+Source: [TW](https://gretil.sub.uni-goettingen.de/gretil_elib/Jon786__Jones_3rdAnniversaryDiscourse1799.pdf)
+
+THE
+WORK S
+OF
+SIR WILLIAM JONES.
+IN SIX VOLUMES.
+VOL. I.
+PRINTED FOR G. G. AND J. ROBINSON, PATER-NOSTER-ROW;
+AND R. H. EVANS (SUCCESSOR TO MR. EDWARDS), NO. 26, PALL-MALL.
+LONDON:
+MDCCXCIX. 
+ANNIVERSARY DISCOURSE,
+BY
+THE PRESIDENT.
+
+IN the former discourses, which I had the honour of addressing to
+you, Gentlemen, on the institution and objects of our Society, I con¬
+fined myself purposely to general topicks; giving in the first a distant
+proSpect of the vast career, on which we were entering, and, in the
+second, exhibiting a more diffuse, but still superficial, sketch of the
+various discoveries in History, Science, and Art, which we might justly
+expect from our inquiries into the literature of Asia. I now propose
+to fill up that outline so comprehensively as to omit nothing essential,
+yet so concisely as to avoid being tedious; and, if the state of my
+health shall suffer me to continue long enough in this climate, it is my
+design, with your permission, to prepare for our annual meetings a
+series of short dissertations, unconnected in their titles and subjects,
+but all tending to a common point of no Small importance in the pursuit of interesting truths.
+
+THE THIRD  
+DELIVERED 2 FEBRUARY, 1786.  
+2 0 THE THIRD DISCOURSE, 
+
+Of all the works, which have been published in our own age, or,
+perhaps, in any other, on the History of the Ancient World, and the
+first population of this habitable globe, that of Mr. JACOB BRYANT, whom
+I name with reverence and affection, has the best claim to the praise
+of deep erudition ingeniously applied, and new theories happily illus¬
+trated by an assemblage of numberless converging rays from a most ex¬
+tensive circumference: it falls, nevertheless, as every human work
+must fall, short of perfection; and the least satisfactory part of it
+seems to be that, which relates to the derivation of words from Asiatick
+languages. Etymology has, no doubt, some use in historical re¬
+searches; but it is a medium of proof so very fallacious, that, where
+it elucidates one fact, it obscures a thousand, and more frequently bor¬
+ders on the ridiculous, than leads to any solid conclusion : it rarely
+carries with it any internal power of conviction from a resemblance
+of sounds or similarity of letters; yet often, where it is wholly un¬
+assisted by those advantages, it may be indisputably proved by extrin¬
+sick evidence. W e know à posteriori, that both fitz and hijo, by the
+nature of two several dialects, are derived from filius; that uncle comes
+from avus, and stranger from extra; that jour is deducible, through
+the Italian, from dies; and rossignol from luscinia, or the singer in groves;
+that sciuro, écureuil) and squirrel are compounded of two Gree k words
+descriptive of the animal; which etymologies, though they could not
+have been demonstrated à priori, might serve to confirm, if any
+such confirmation were necessary, the proofs of a connection between
+the members of one great Empire ; but, when we derive our banger, or
+short pendent sword, from the Persian, because ignorant travellers thus
+mis-spell the word khanjar, which in truth means a different weapon,
+or sandal-wood from the Greek, because we suppose, that sandals were
+sometimes made of it, we gain no ground in proving the affinity of
+nations, and only weaken arguments, which might otherwise be
+firmly supported. That Cu's then, or, as it certainly is written in 
+one ancient diaiect, CU’T‚ and in others, probably, CA'S, enters into
+the composition of many proper names, we may very reasonabiy be¬
+lieve; and that Algeziras takes its name from the Arabick word for
+an island, cannot be doubted ; but, when we are told from Europe,
+that places and provinces in India were clearly denominated from
+those words, we cannot but observe, in the first instance, that the
+town, in which we now are assembled, is properly written and pro¬
+nounced Calicátà; that both Cátá and Cút unquestionably mean places
+of strength, or, in general, any inclosures; and that Gujaràt is at least
+as remote from Jezirah in sound, as it is in situation.
+Another exception (and a third could hardly be discovered by any
+candid criticism) to the Analysis of Ancient Mythology, is, that the
+method of reasoning and arrangement of topicks adopted in that learned
+work are not quite agreeable to the title, but almost wholly synthetical,
+and, though synthesis may be the better mode in pure science, where
+the principles are undeniable, yet it seems less calculated to give com¬
+plete satisfaction in historical disquisitions, where every postulatum will
+perhaps be refused, and every definition controverted : this may seem
+a slight objection, but the subject is in itself so interesting, and the full
+conviction of all reasonable men so desirable, that it may not be lost
+labour to discuss the same or a similar theory in a method purely ana¬
+lytical, and, after beginning with facts of general notoriety or undis¬
+puted evidence, to investigate such truths, as are at first unknown or
+very imperfectly discerned.
+
+The five principal nations, who have in different ages divided
+among themselves, as a kind of inheritance, the vast continent of Asia,
+with the many islands depending on it, are the Indians, the Chinese,
+the Tartars, the Arabs, and the Persians: who they severally were,
+whence, and when they came, where they now are settled, and what 
+
+advantage a more perfect knowledge of them all may bring to our
+European world, will be shown, I trust, in five distinct essays; the last
+of which will demonstrate the connexion or diversity between them,
+and solve the great problem, whether they had any common origin,
+and whether that origin was the same, which we generally ascribe
+to them.
+
+I begin with India, not because I find reason to believe it the true
+centre of population or of knowledge, but, because it is the country,
+which we now inhabit, and from which we may best survey the re–
+gions around us ; as, in popular language, we Speak of the rising Sun,
+and of his progress through the Zodiack, although it had long ago been
+imagined, and is now demonstrated, that he is himself the centre of
+our planetary System. Let me here premise, that, in all these inquiries
+concerning the history of India, I shall confine my researches downWards to the Mohammedan conquests at the beginning of the eleventh
+century, but extend them upwards, as high as possible, to the
+earliest authentick records of the human Species.
+India then, on its most enlarged scale, in which the ancients appear
+to have understood it, comprises an area of near forty degrees on each
+side, including a space almost as large as all Europe; being divided on
+the west from Persia by the Arachosian mountains, limited on the east by
+the Chinese part of the farther peninsula, confined on the north by the
+wilds of Tartary, and extending to the south as far as the isles of Java.
+This trapezium, therefore, comprehends the stupendous hills of Potyid
+or Tibet, the beautiful valley of Cashmír, and all the domains of the
+old Indoscythians, the countries of Népál and Butánt, Cámrùp or Asàm,
+together with Siam, Ava, Racan, and the bordering kingdoms, as far
+as the Chína of the Hindus or Sín of the Arabian Geographers; not to
+mention the whole western peninsula with the celebrated island of 
+
+Sinhala, or Lion-like men, at its southern extremity. By India, in
+short, I mean that whole extent of country, in which the primitive
+religion and languages of the Hindus prevail at this day with more
+or less of their ancient purity, and in which the Nágarì letters are
+still used with more or less deviation from their original form.
+The Hindus themselves believe their own country, to which they
+give the vain epithets of Medbyama or Central, and Punyabbúmi, or the
+Land of Virtues, to have been the portion of BHARAT, one of nine
+brothers, whose father had the dominion of the whole earth; and they
+represent the mountains of Himalaya as lying to the north, and, to the
+west, those of Vindhya, called also Vindian by the Greeks ; beyond
+which the Sindhu runs in several branches to the seat
+ and meets it
+nearly opposite to the point of Dwáracà, the celebrated seat of their
+Shepherd God: in the south-east they place the great river Saravatya;
+by which they probably mean that of Ava, called also Airávati in
+part of its course, and giving perhaps its ancient name to the gulf of
+Sahara. This domain of Bharat they consider as the middle of the
+Jambudwípa, which the Tibetians also call the Land of Zambu; and
+the appellation is extremely remarkable; for Jambu is the Sanscrit
+name of a delicate fruit called Jáman by the Muselmans, and by us
+rose-apple; but the largest and richest sort is named Amrita, or Immortal ; and the Mythologists of Tibet apply the fame word to a celestial tree bearing ambrosial fruit, and adjoining to four vast rocks,
+from which as many sacred rivers derive their several streams.
+The inhabitants of this extensive tract are described by Mr. LORD
+with great exactness, and with a picturesque elegance peculiar to our
+ancient language: " A people, says he, presented themselves to mine
+“eyes, clothed in linen garments somewhat low descending, of a
+“gesture and garb, as I may say, maidenly and well nigh effeminate, 
+ of a countenance shy and somewhat estranged, yet smiling out a
+" glozed and bashful familiarity." Mr. ORME, the Historian of India,
+who unites an exquisite taste for every fine art with an accurate know¬
+ledge of Asiatick manners, observes, in his elegant preliminary Disser¬
+tation, that this "country has been inhabited from the earliest an¬
+"tiquity by a people, who have no resemblance, either in their figure
+" o r manners, with any of the nations contiguous to them," and that,
+"although conquerors have established themselves at different times
+" i n different parts of India, yet the original inhabitants have lost very
+"little of their original character." The ancients, in fact, give a de¬
+scription of them, which our early travellers confirmed, and our own
+personal knowledge of them nearly verifies; as you will perceive from
+a passage in the Geographical Poem of DIONYSIUS, which the Analyst
+of Ancient Mythology has translated with great Spirit:
+u
+ To th' east a lovely country wide extends,
+" INDIA, whose borders the wide ocean bounds;
+" On this the sun, new rising from the main,
+" Smiles pleas'd, and sheds his early orient beam.
+" Th' inhabitants are swart, and in their locks
+" Betray the tints of the dark hyacinth.
+" Various their functions; some the rock explore,
+" And from the mine extract the latent gold;
+" Some labour at the woof with cunning skill,
+" And manufacture linen; others shape
+" And polish iv'ry with the nicest care:
+" Many retire to rivers shoal, and plunge
+" To seek the beryl flaming in its bed,
+" Or glittering diamond. Oft the jasper's found
+" Green, but diaphanous; the topaz too
+" Of ray serene and pleasing; last of all 
+" The lovely amethyst, in which combine
+" All the mild shades of purple. The rich soil,
+" Wash'd by a thousand rivers, from all sides
+" Pours on the natives wealth without control."
+Their sources of wealth are still abundant even after so many revolu¬
+tions and conquests; in their manufactures of cotton they still surpass all
+the world; and their features have, most probably, remained unaltered
+since the time of DIONYSIUS ; nor can we reasonably doubt, how dege¬
+nerate and abased so ever the Hindus may now appear, that in some early
+age they were splendid in arts and arms, happy in government, wise in
+legislation, and eminent in various knowledge: but, since their civil
+history beyond the middle of the nineteenth century from the present
+time, is involved in a cloud of fables, we seem to possess only four
+general media of satisfying our curiosity concerning it; namely, first,
+their Languages and Letters; secondly, their Philosophy and Religion;
+thirdly, the actual remains of their old Sculpture and Architecture;
+and fourthly, the written memorials of their Sciences and Arts.
+I. It is much to be lamented, that neither the Greeks, who attended
+ALEXANDER into India, nor those who were long connected with
+it under the Bactrian Princes, have left us any means of knowing with
+accuracy, what vernacular languages they found on their arrival in
+this Empire. The Mohammedans, we know, heard the people of proper
+Hindustan, or India on a limited scale, speaking a Bháshá, or living
+tongue of a very singular construction, the purest dialect of which
+was current in the districts round Agra, and chiefly on the poetical
+ground of Mat'hurà ; and this is commonly called the idiom of Vraja.
+Five words in six, perhaps, of this language were derived from the
+Sanscrit, in which books of religion and science were composed,
+and which appears to have been formed by an exquisite grammatical 
+
+arrangement, as the name itSelf implies, from Some unpolished idiom;
+but the basis of the Hindustánì, particularly the inflexions and regimen
+of verbs, differed as widely from both those tongues, as Arabick differs
+from Persian, or German from Greek. Now the general effect of conquest is to leave the current language of the conquered people unchanged, or very little altered, in its ground-work, but to blend with
+it a considerable number of exotick names both for things and for
+actions; as it has happened in every country, that I can recollect,
+where the conquerors have not preserved their own tongue unmixed
+with that of the natives, like the Turks in Greece, and the Saxons in
+Britain; and this analogy might induce us to believe, that the pure
+Hindì, whether of Tartarian or Chaldean origin, was primeval in Upper
+India, into which the Sanscrit was introduced by conquerors from other
+kingdoms in some very remote age; for we cannot doubt that the
+language of the Véda’s was used in the great extent of country, which
+has before been delineated, as long as the religion of Brahmà has
+prevailed in it.
+The Sanscrit language, whatever be its antiquity, is of a wonderful
+structure; more perfect than the Greek, more copious than the Latin,
+and more exquisitely refined than either, yet bearing to both of them a
+stronger affinity, both in the roots of verbs and in the forms of grammar,
+than could possibly have been produced by accident; fo strong indeed,
+that no philologer could examine them all three, without believing
+them to have sprung from some common source, which, perhaps, no
+longer exists: there is a similar reason, though not quite so forcible,
+for supposing that both the Gothick and the Celtick, though blended
+with a very different idiom, had the same origin with the Sanscrit;
+and the old Persian might be added to the fame family, if this were
+the place for discussing any question concerning the antiquities of
+Persia. 
+
+The characters, in which the languages of India were originally
+written, are called Nágarí, from Nagara, a City, with the word Déva
+sometimes prefixed, because they are believed to have been taught by
+the Divinity himself, who prescribed the artificial order of them in a
+voice from heaven. These letters, with no greater variation in their
+form by the change of straight lines to curves, or conversely, than the
+Cufick alphabet has received in its way to India, are still adopted in
+more than twenty kingdoms and states, from the borders of Cashgar
+and Khoten, to Ráma's bridge, and from the Sindhu to the river of Siam;
+nor can I help believing, although the polished and elegant Dévanágarí
+may not be so ancient as the monumental characters in the caverns of
+Jarasandha, that the square Chaldaick letters, in which most Hebrew
+books are copied, were originally the same, or derived from the same
+prototype, both with the Indian and Arabian characters: that the Phenician, from which the Greek and Roman alphabets were formed by
+various changes and inversions, had a similar origin, there can be little
+doubt; and the inscriptions at Canárah, of which you now possess a most
+accurate copy, seem to be compounded of Nágarí and Ethiopick letters,
+which bear a close relation to each other, both in the mode of writing
+from the left hand, and in the singular manner of connecting the
+vowels with the confonants. These remarks may favour an opinion
+entertained by many, that all the symbols of sound, which at first,
+probably, were only rude outlines of the different organs of speech, had
+a common origin: the symbols of ideas, now used in China and Japan,
+and formerly, perhaps, in Egypt and Mexico, are quite of a distinct
+nature; but it is very remarkable, that the order of sounds in the
+Chinese grammars corresponds nearly with that observed in Tibet, and
+hardly differs from that, which the Hindus consider as the invention of
+their Gods. 
+
+II. Of the Indian Religion and Philosophy, I shall here say but little;
+because a full account of each would require a separate volume : it will
+be sufficient in this dissertation to assume, what might be proved beyond
+controversy, that we now live among the adorers of those very deities,
+who were worshipped under different names in old Greece and Italy, and
+among the professors of those philosophical tenets, which the Ionick and
+Attick writers illustrated with all the beauties of their melodious
+language. On one hand we see the trident of NEPTUNE, the eagle
+of Jupiter, the Satyrs of BACCHUS, the bow of CUPID, and the
+chariot of the Sun; on another we hear the cymbals of RHEA, the songs
+of the Muses, and the pastoral tales of APOLLO NOMIUS. In more
+retired scenes, in groves, and in seminaries of learning, we may per¬
+ceive the Brahmans and the Sarmanes, mentioned by CLEMENS, dis¬
+puting in the forms of logick, or discoursing on the vanity of human
+enjoyments, on the immortality of the soul, her emanation from the
+eternal mind, her debasement, wanderings, and final union with her
+source. The six philosophical schools, whose principles are explained
+in the Dersana Sástra, comprise all the metaphysicks of the old Aca¬
+demy, the Stoa, the Lyceum; nor is it possible to read the Védánta, or
+the many fine compositions in illustration of it, without believing, that
+PYTHAGORAS and PLATO derived their sublime theories from the
+same fountain with the sages of India. The Scythian and Hyperborean
+doctrines and mythology may also be traced in every part of these eastern
+regions; nor can we doubt, that WOD or ODEN, whose religion, as
+the northern historians admit, was introduced into Scandinavia by a
+foreign race, was the same with BUDDH, whose rites were probably
+imported into India nearly at the same time, though received much
+later by the Chinese, who soften his name into FO'.
+This may be a proper place to ascertain an important point in the
+Chronology of the Hindus; for the priests of BUDDHA left in Thibet 
+
+and China the precise epoch of his appearance, real or imagined, in
+this Empire; and their information, which had been preserved in
+writing, was compared by the Christian Missionaries and scholars with
+our own era. COUPLET, DE GUIGNES , GIORGI, and BAILLY , differ
+a little in their accounts of this epoch, but that of Couplet seems the
+most correct: on taking, however, the medium of the four several
+dates, we may fix the time of BUDDHA, or the ninth great incarnation
+of VISHNU, in the year one thousand and fourteen before the birth of
+CHRIST, or two thousand seven hundred and ninety-nine years ago. Now
+the Cáshmirians, who boast of his descent in their kingdom, assert that
+he appeared on earth about two centuries after CRISHN A the Indian
+APOLLO, who took so decided a part in the war of the Mahábhárat;
+and, if an Etymologist were to suppose, that the Athenians had em¬
+bellished their poetical history of PANDION's expulsion and the restor¬
+ation of AEGEUS with the Asiatick tale of the PA'NDU S and YUD¬
+HISHTIR, neither of which words they could have articulated, I
+should not hastily deride his conjecture : certain it is, that Pándumandel
+is called by the Greeks the country of PANDION. We have, there¬
+fore, determined another interesting epoch, by fixing the age of
+CRISHNA near the three thousandth year from the prefent time; and,
+as the three first Avatàrs, or descents of VISHNU, relate no less clearly
+to an Universal Deluge, in which eight persons only were saved, than
+the fourth and fifth do to the punishment of impiety and the humiliation of
+the proud, we may for the prefent assume, that the second, or silver,
+age of the Hindus was subsequent to the dispersion from Babel; so
+that we have only a dark interval of about a thousand years, which
+were employed in the settlement of nations, the foundation of states or
+empires, and the cultivation of civil society. The great incarnate
+Gods of this intermediate age are both named RA'M A but with dif¬
+ferent epithets; one of whom bears a wonderful resemblance to the
+Indian BACCHUS, and his wars are the subject of several heroick poems. 
+
+He is represented as a descendent from SÚRYA , or the SUN, as the
+husband of SÍTÁ , and the son of a princess named CAÚSELYÁ :
+it is very remarkable, that the Peruvians, whose Incas boasted of the
+same descent, styled their greatest festival Ramasitoa; whence we may
+suppose, that South America was peopled by the same race, who im¬
+ported into the farthest parts of Asia the rites and fabulous history of
+RÁ'MA. These rites and this history are extremely curious; and,
+although I cannot believe with NEWTON, than ancient mythology
+was nothing but historical truth in a poetical dress, nor, with BACON,
+that it consisted solely of moral and metaphysical allegories, nor with
+BRYANT, that all the heathen divinities are only different attributes
+and representations of the Sun or of deceased progenitors, but conceive
+that the whole system of religious fables rose, like the Nile, from se¬
+veral distinct: sources, yet I cannot but agree, that one great spring
+and fountain of all idolatry in the four quarters of the globe was the
+veneration paid by men to the vast body of fire, which "looks from
+his sole dominion like the God of this world;" and another, the im¬
+moderate respect shown to the memory of powerful or virtuous an¬
+cestors, especially the founders of kingdoms, legislators, and warriors,
+of whom the Sun or the Moon were wildly supposed to be the parents.
+III. The remains of architecture and sculpture in India, which I
+mention here as mere monuments of antiquity, not as specimens of
+ancient art, seem to prove an early connection between this country
+and Africa : the pyramids of Egypt, the colossal statues described by
+PAUSANIAS and others, the sphinx, and the HERMES Canis, which
+last bears a great resemblance to the Varáhávatár, or the incarnation
+of VISHNU in the form of a Boar, indicate the style and mythology of
+the same indefatigable workmen, who formed the vast excavations of
+Cánárah, the various temples and images of BUDDHA, and the idols,
+which are continually dug up at Gayá, or in its vicinity. The letters 
+
+on many of those monuments appear, as I have before intimated, partly
+of Indian, and partly of Abyssinian or Ethiopick, origin; and all these
+indubitable facts may induce no ill-grounded opinion, that Ethiopia
+and Hindustan were peopled or colonized by the same extraordinary
+race; in confirmation of which, it may be added, that the moun¬
+taineers of Bengal and Bahàr can hardly be distinguished in some of
+their features, particularly their lips and noses, from the modern Abyssinians, whom the Arabs call the children of CúsH : and the ancient
+Hindus, according to STRABO, differed in nothing from the Africans,
+but in the straitness and smoothness of their hair, while that of the
+others was crisp or woolly; a difference proceeding chiefly, if not en¬
+tirely, from the respective humidity or dryness of their atmospheres:
+hence the people who received the first light of the rising sun, according
+to the limited knowledge of the ancients, are said by APULEIUS to be
+the Arii and Ethiopians, by which he clearly meant certain nations of
+India;, where we frequently see figures of BUDDHA with curled hair
+apparently designed for a representation of it in its natural state.
+IV. It is unfortunate, that the Silpi Sástra, or collection of treatises on
+Arts and Manufactures, which must have contained a treasure of use¬
+ful information on dying, painting, and metallurgy, has been so long
+neglected, that few, if any, traces of it are to be found; but the
+labours of the Indian loom and needle have been universally celebrated;
+and fine linen is not improbably supposed to have been called Sindon,
+from the name of the river near which it was wrought in the highest
+perfection: the people of Colchis were also famed for this manufacture,
+and the Egyptians yet more, as we learn from several passages in
+scripture, and particularly from a beautiful chapter in EZEKIAL con¬
+taining the most authentick delineation of ancient commerce, of which
+Tyre had been the principal mart. Silk was fabricated immemorially
+by the Indians, though commonly ascribed to the people of Serica or 
+
+Tancùt, among whom probably the word Sèr, which the Greeks ap¬
+plied to the silk-worm, signified gold; a sense, which it now bears in
+Tibet. That the Hindus were in early ages a commercial people, we
+have many reasons to believe; and in the first of their sacred law-tracts,
+which they SuppoSe to have been revealed by MENU many millions of
+years ago, we find a curious passage on the legal interest of money,
+and the limited rate of it in different cases, with an exception in regard
+to adventures at sea; an exception, which the sense of mankind ap¬
+proves, and which commerce absolutely requires, though it was not
+before the reign of CHARLES I. that our own jurisprudence fully ad¬
+mitted it in respect of maritime contracts.
+We are told by the Grecian writers, that the Indians, were the wisest
+of nations; and in moral wisdom, they were certainly eminent: their
+Níti Sastra, or System of Ethicks, is yet preserved, and the Fables of
+VISHNUSERMAN, whom we ridiculously call Pilpay, are the most beau¬
+tiful, if not the most ancient, collection of apologues in the world:
+they were first translated from the Sanscrit, in the sixth century, by the
+order of BUZERCHUMIHR, or Bright as the Sun, the chief physician
+and afterwards Vezir of the great ANÚSHIREVÁN, and are extant under
+various names in more than twenty languages; but their original
+title is Hitópadésa; or Amicable Instruction; and, as the very existence
+of Esop, whom the Arabs believe to have been an Abyssinian, appears
+rather doubtful, I am not disinclined to suppose; that the first moral
+fables, which appeared in Europe, were of Indian or Ethiopian origin.
+
+The Hindus are Said to have boasted of three inventions, all of which,
+indeed, are admirable, the method of instructing by apologues, the
+decimal scale adopted now by all civilized nations, and the game of
+Chess, on which they have some curious treatises; but, if their numer¬
+ous works on Grammar, Logick‚ Rhetorick, Musick, all which are 
+extant and accessible, were explained in some language generally known,
+it would be found, that they had yet higher pretensions to the praise
+of a fertile and inventive genius. Their lighter Poems are lively and
+elegant; their Epick, magnificent and sublime in the highest degree;
+their Purána's comprise a series of mythological Histories in blank
+verse from the Creation to the supposed incarnation of BUDDHA; and
+their Védas, as far as we can judge from that compendium of them,
+which is called Upanishat, abound with noble speculations in metaphysicks, and fine discourses on the being and attributes of GOD. Their
+most ancient medical book, entitled Chereca, is believed to be the
+work of SIVA ; for each of the divinities in their Triad has at least one
+sacred composition ascribed to him; but, as to mere human works on
+History and Geography, though they are said to be extant in Cashmír,
+it has not been yet in my power to procure them. What their astro¬
+nomical and mathematical writings contain, will not, I trust, remain
+long a secret: they are easily procured, and their importance cannot
+be doubted. The Philosopher, whose works are said to include a
+system of the universe founded on the principle of Attraction and the
+Central position of the sun, is named YAVAN ACHÁRYA, because he
+had travelled, we are told, into Ionia: if this be true, he might have
+been one of those, who conversed with PYTHAGORAS ; this at least is
+undeniable, that a book on astronomy in Sanscrit bears the title of
+Yavana Jática, which may signify the Ionic Sect; nor is it improbable,
+that the names of the planets and Zodiacal stars, which the Arabs
+borrowed from the Greeks, but which we find in the oldest Indian re¬
+cords, were originally devised by the same ingenious and enterprising
+race, from whom both Greece and India were peopled; the race, who,
+as DIONYSIUS describes them,
+'first assayed the deep,
+'And wafted merchandize to coasts unknown, 
+
+'Those, who digested first the starry choir,
+'Their motions mark'd, and call'd them by their names.'
+Of these cursory observations on the Hindus, which it would re¬
+quire volumes to expand and illustrate, this is the result: that they
+had an immemorial affinity with the old Persians, Ethiopians, and
+Egyptians, the Phenicians, Greeks, and Tuscans, the Scythians or Goths,
+and Celts, the Chinese, Japanese, and Peruvians; whence, as no reason
+appears for believing, that they were a colony from any one of those
+nations, or any of those nations from them, we may fairly conclude
+that they all proceeded from some central country, to investigate which
+will be the object: of my future Discourses ; and I have a sanguine hope,
+that your collections during the present year will bring to light many
+useful discoveries; although the departure for Europe of a very in¬
+genious member, who first opened the inestimable mine of Sanscrit
+literature, will often deprive us of accurate and solid information con¬
+cerning the languages and antiquities of India. 
