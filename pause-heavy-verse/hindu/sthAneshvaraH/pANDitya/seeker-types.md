@@ -26,3 +26,8 @@ Do you think I can achieve self-recognition in this lifetime? How many life-time
 Guruji, were can I find your biodata?  
 Do you think you can liberate me?  
 Can I take a selfie with you?
+
+## Can I ask
+Some ask me: how are you doing? I say fine, and they say: can I ask you a question?  
+And other times, they simply send me a message: can I ask you a question? And I say yes.  
+This way, I never have to write one extra word but have already answered their question.
