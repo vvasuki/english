@@ -4,9 +4,6 @@ title = "1 Intro to tantra"
 
 Exposure to the Tantric Path
 
-Background Information:
-
-These stories are biographical narrations by the author, written down around 20 years ago. This was originally meant to be published as a book, but after completing the first eight chapters, the author chose not to continue, and thus we are left with the stories in their present incomplete form. Most of these stories took place around 1970. The areas discussed in these stories have changed greatly in the last 40 years and may not match what we see today. All of these stories are factual. There is no plan to ever publish this book, so if you want to know more, or if you want to know about other events that occurred, you would have to meet the author personally.
 
 Chapter One
 
@@ -14,9 +11,24 @@ In that little town under the foothills of the western ghat in Kerala, there was
 
 A thing about six inches long made from flour which had loose hay for hands and feet with half an egg each for it’s eyes and a knot of real hair stuck on the top was lying on the ground nearby. One of the tantrics recited an incantation and the thing rose up and started moving towards him, rocking back and forth on its own, moving its hay legs sideward.
 
-This town was near the famous Durga temple-town Chottanikkara (where midnight tantric rituals are conducted treating hundreds of haunted people). This used to be a kind of show by the local tantric voodoo priests. They will put up a small challenge to the competitor and usually they meet in front of some old temple in an empty ground. The names of competitors will be announced in the local market place, community bathing lake, and in the temples. So there will be two or three villages gathered around for the fete. About 200 people will be there, and the priests don’t have any stage or microphones or anything like that. They just start shouting at each other and the people will stand in a circle. I was just sitting back in fear. I heard some of them murmuring, “When these things start to happen it means it is getting dangerous.” One of the tantrics cuts the tongue of the medium with a gross looking blade, there is blood all over . He covers the medium with a blanket and starts screaming out some questions to him, while going in front of different people in the audience. The questions are like what is the color of shirt this man is wearing, what vegetable this lady has in her bag, where is this old man coming from etc. The tongue cut medium screams back answers from under the blanket. Then the other tantric sticks the tongue back in its place, but now the guy cannot talk! In the zeal to outdo one another tantrics call more people out of the crowd. asking them to perform as mediums. No one comes forward fearing that they may possibly perform injurious acts.
+This town was near the famous Durga temple-town Chottanikkara (where midnight tantric rituals are conducted treating hundreds of haunted people). This used to be a kind of show by the local tantric voodoo priests. They will put up a small challenge to the competitor and usually they meet in front of some old temple in an empty ground. The names of competitors will be announced in the local market place, community bathing lake, and in the temples. So there will be two or three villages gathered around for the fete. 
+
+<details><summary>shrIjit (द्रष्टुं नोद्यम्)</summary>
+
+Chottanikkara क्षेत्रं इति उक्तं तैः। तन्निकटे तु पैशाचिकभावाः नैव संभवन्ति।  
+Guruthi pooja ! It's not any voodoo practice. It's more or less like Bhootharaja bali, in Saktheya
+</details>
+
+
+About 200 people will be there, and the priests don’t have any stage or microphones or anything like that. They just start shouting at each other and the people will stand in a circle. I was just sitting back in fear. I heard some of them murmuring, “When these things start to happen it means it is getting dangerous.” One of the tantrics cuts the tongue of the medium with a gross looking blade, there is blood all over . He covers the medium with a blanket and starts screaming out some questions to him, while going in front of different people in the audience. The questions are like what is the color of shirt this man is wearing, what vegetable this lady has in her bag, where is this old man coming from etc. The tongue cut medium screams back answers from under the blanket. Then the other tantric sticks the tongue back in its place, but now the guy cannot talk! In the zeal to outdo one another tantrics call more people out of the crowd. asking them to perform as mediums. No one comes forward fearing that they may possibly perform injurious acts.
 
 Finally, to the relief of everyone they declare a draw to the challenge and announce that they will meet everyone again on another date. The crowd broke up. I walked around the little bazaar near the temple. There I saw one of the tantrics going from stall to stall. This is a weekly kind of market there. There is no building or anything like that, people will come, may be spread a mat or spread a long blanket and then they will put their things on and start selling, while shouting loudly the prices. It will go till sunset time in the evening. Just before they close, the local criminals will come and collect their tax. After they left, everyone was afraid of this magician who went around collecting his toll. After he left I asked some of the shop keepers why they allowed this to go on. One man says if I don’t give he will change all these vegetable into creatures. He said, “ He can make snakes fall from the sky”. Another said anything may happen , this man has no heart. He can do what he likes and no policeman will dare touch him. A third man told me he will change the color of my wife’s skin. He has chatan (a type of spirit) working for him. Chatan is derived from the Sanskrit word chetana or consciousness. Whether there is a relationship between this name and the Arabic saitan or Hebru’s Satan is a question for etymologists.
+
+<details><summary>shrIjit (द्रष्टुं नोद्यम्)</summary>
+
+Chathan is Sasta. They are the children of Siva and Parvathy. There are 390 of them. Even with Upasana Paddhhathi in Koula marga.  
+</details>
+
 
 I was eager to get to the bottom of what I have seen and heard. Without wasting more time in the bazaar I headed for the woods outside the village. At the end of a long paddy field in the eucalyptus woods is where I was told I will find the tantric showman’s residence. after a time consuming hike through the thick village I finally reached the place. The small shelter in the middle of the clearance was assembled with crude wood, with a cut rock that deemed the roof and the ‘hut’ was built under a banyan tree. The roof was not full because one could stand up and see part of the tree where one side there was no or very little roof (rock). It had all around animal bones and human skulls and hair and all kinds of disgusting paraphernalia.
 
