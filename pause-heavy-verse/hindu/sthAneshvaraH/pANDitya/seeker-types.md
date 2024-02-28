@@ -31,3 +31,10 @@ Can I take a selfie with you?
 Some ask me: how are you doing? I say fine, and they say: can I ask you a question?  
 And other times, they simply send me a message: can I ask you a question? And I say yes.  
 This way, I never have to write one extra word but have already answered their question.
+
+## Listening & consuming
+When Guruji taught, I would listen to him intensely. And I would forget I was listening to him. I would try to consume every word. I needed to form thoughts to comprehend and most often I would not even have that. And my brilliant colleagues always made fun of me. They could not distinguish whether I was just dozing or listening. And Guruji helped them tease me more. 
+
+I did not want to waste my time forming thoughts when grasping his teachings. For that, I already had my books. 
+
+(my mode of study was the same whether it was in front of Prem Chetan, Ramanandaji or Vrajavallabha guruji.)
