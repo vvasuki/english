@@ -168,3 +168,68 @@ Your comments and suggestions are greatly appreciated.
 
 Neither completely determined, nor completely arbitrary - it's inbetween - probabilistically determined. 
 </details>
+
+Purpose:
+
+Just because purpose is a human invention,  
+this does not mean that other beings act purposelessly.  
+And we can expand the idea of purpose to the inanimate objects,  
+and the entire cosmos then becomes teeming with purpose.  
+We are then forced to investigate the purpose as such.
+
+There is no denying that the purpose of the body is the body  
+and of life, life.  
+If mutation allows the body to reconfigure its now presentation,  
+being embodied lets the life to flow.  
+Time strings itself in the beats of life  
+and in every sequencing of the amino acids.  
+Body as such cannot exercise as much of freedom as the mind therefore.  
+And the purpose is easy to metrify here.
+
+With humans, simple rationality collapses.  
+We are able to act purposelessly.  
+These acts erupt in the modes of love and of hatred.  
+We are able to act altruistically and wage wars purposelessly.  
+And yes, there are some who would teach biology to decode purpose in every acts,  
+just like there are others who invent purpose in a rock rolling down the hill.
+
+Freedom and purpose pose as antithetical to each other.  
+The more subjects act with purpose,  
+the less they exercise freedom.  
+Walking is purposeful, but one needs to be free to wander.+++(5)+++  
+Mind-wandering is likewise the same, as thinking,  
+including thinking about purpose, is purposeful.  
+To say that humans enjoy more freedom is not a mere anthropocentric idea.  
+Humans are capable to act more purposelessly than other animals.+++(5)+++
+
+All what we consider purpose are determined biologically and culturally.  
+They both limit and determine our existence  
+and they both impose some purpose,  
+and to exist in the body and to retain membership in society then becomes our purpose.  
+Our imagination of purpose,  
+our fetishization of purpose,  
+allows us to invent it in the cosmic scale,  
+the purpose of the cosmos, the purpose of God, and so on.  
+And this leads to a paradox,  
+and being human is to live through this paradox.
+
+The paradox is, we invent absolutely free entity in God  
+and we impose upon it the purpose that we can invent.+++(5)+++  
+Meaning, the absolutely free entity has to act according to the purpose as determined by us.  
+Some of us, anyway.
+
+Whether in different hats or in different ties,  
+we have made an occupation of determining the purpose of the absolute.  
+And this is where we discover our true purpose.  
+To be able to capture the totality while ourselves being a mere particle.
+
+And some of us would surrender to the unknown and say,  
+only that knows the purpose,  
+not recognizing the travesty of our imposition.
+
+Purpose, meaning, teleology: all these are human constructs to place us at the center of the universe.+++(5)+++
+
+## Being is blessing
+When Siddhartha left his palace, he was not embarking the network of million franchises. When the giant elephants stroll through the forest, they give birthplace to million dung-beetles. The nature of a banyan tree is to grow tall. For some, it is a lovely shade or a nesting ground. For others, it is just a bunch of firewood.
+
+Your being here is a blessing. How the blessing is received is not for you to decide.+++(5)+++

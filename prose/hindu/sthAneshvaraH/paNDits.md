@@ -129,3 +129,64 @@ Decades have passed. Mahes dai has retired and is now living in Kathmandu. And h
 
 ## Poor philosopher
 Kaṇāda earned his name for eating the leftover. Pippalāda earned his name for relying on tiny figs from the Pippala tree. Once upon a time, it was prestigious to be poor if you were also a philosopher.
+
+
+## Absent subject
+The absent subject:
+
+There are two ways subjects have remained absent:  
+being absent in the scene as you own the theater,  
+and being absent by renouncing the theater.  
+The works of modern objectivity are the first.  
+I write books and essays  
+and never engage myself in my personal conversation.  
+I am absent from the entire scene.  
+But at the same time, I am the owner of the theater.  
+I am the God of my world.  
+As I am the author.
+
+And there are others, who have given us the life-blood of civilization,  
+have carved the path of rational thinking,  
+but have remained behind the curtain.  
+Not by owning the theater though,  
+as they have renounced their authorship.  
+
+We call these Agamas,  
+the texts that come without any authorship.  
+The ethos of the Rishis was to rise above subjectivity.  
+And the Agamas carry on this tradition.
+
+But authorless Agamas are not the only literature we have in hand.  
+We have some generic names such as Vyasa.  
+We have some pseudo-authors,  
+like many of the devotional poems attributed to Shamkara.  
+And we have liturgies and countless manuals,  
+all coming with absent authors.
+
+There is a contrast in the classical and modern denials of subjects in the visible field.  
+They both seek to ground objectivity,  
+no matter what their topic of conversation is.  
+Both an early manual on witchcraft and a modern textbook on physics come from the same conviction  
+that they are recording the truth,  
+that they are recording science.  
+They both have assumed that bracketing subjectivity  
+is a precondition for constructing objectivity.  
+
+But the ancient ones go one step further  
+and completely erase themselves from the screen of memory.  
+They become the absent subject.  
+On the contrary, modern authors are absent in the discourse  
+but are obsessed with their words,  
+as they believe the words belong to them,  
+they believe they are the owners of the words.
+
+Our quest for the truth should never be about a pure object or a subject manipulating objects.  
+Like a milkmaid, we should only be carrying the truth and not making it.  
+And if the truth demands that we come to the screen,  
+so should we.  
+But we should also be willing to bracket ourselves from the scene,  
+actually erase ourselves in totality, if need be.  
+
+But in all accounts,  
+we should not resign from the quest for the truth  
+while allowing our words to wander in the field
