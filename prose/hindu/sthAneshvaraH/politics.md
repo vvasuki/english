@@ -120,3 +120,21 @@ Having witnessed the devastation of his creation by his followers, their unwilli
 Barely two years old, Jose does not know what Capitalism or Communism is. Jose has yet to learn about the national barriers or the races among the humankind. Jose cried when some unknown "father" dipped his head and was happy to be back to the lap of his mother. Jose is unaware of the journey his parents made to give him a dream life.
 
 Jose does not know the distinction between concentration camp and detention center. Jose only knows his parents are not with him. And he cries today because they took his teddy bear. Those carrying guns in the street are protected by the second amendment. There is no amendment for poor Jose to keep his teddy bear. The nation of the brave is mortified what little Joses might have hidden inside those teddy bears. The home of the free triumphantly laughs today with some teddy bears snatched from little Joses.
+
+## Tears
+
+Tears are shattering and sometimes amazing. There are tears of sorrow and of happiness. But sometimes, there are just tears. You can call this diplomatic tears, fox tears.
+
+When two nuclear nations come close to eruption and the globe stops breathing,  
+there comes onion as a savior.  
+And when one nation wants to bring to the halt the other nation,  
+it stops importing onions.  
+If the flights are suspended,  
+the nations depart their ways and nothing happens.  
+If the consulates are closed, the nations go on their own ways and nothing happens.  
+But onions? They are the tie-breakers.  
+When the onion import stops, the doors for diplomatic talks begin.  
+And this goes all the way to the kitchen cabinet as it also affects the ministers.  
+And like to good brothers, they come to some agreement.  
+For we can tolerate the tears of sorrow or of joy but the tears of onions?  
+Yes, this is the story of two great nuclear nations.+++(5)+++
