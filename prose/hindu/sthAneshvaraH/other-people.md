@@ -2,6 +2,48 @@
 title = "Other people"
 +++
 
+## Trust
+To trust is to make yourself vulnerable.  
+And nobody likes that.  
+But all our social transactions are based on trust,  
+and so we seek that people trust us.  
+To trust is therefore to live in a perpetual dilemma of being shattered.
+
+Some of us have surplus of trust.  
+We make our trust to translate into our faith.  
+And we trust on the dead more than the living.  
+And we enter the jungle of solipsism  
+when we find the dead ones more trustworthy than the living ones.
+
+What makes us not trust the others?  
+It is easy to say, because they are not trustworthy.  
+Actually, trust comes from courage.  
+It takes courage to make oneself vulnerable.  
+Only the strong ones have the courage.  
+Trust then is a matter of courage.  
+For, one who trusts can be betrayed one time  
+but the one who does not is being betrayed within himself everyday;  
+he is letting his psychosis take over his being.+++(5)+++
+
+And also, only the trustworthy can trust.  
+But why do some people become unreliable?  
+Again, it comes from the lack of strength.  
+Only those who can walk the path of truth  
+can share their trust on the others.  
+Trust is therefore a mirroring of one's own heart.  
+You are unable to trust someone because you know you cannot be trusted.
+
+But there are broken ones.  
+There are those who have been deceived, been betrayed, have their faith shattered.  
+There again are a few observations.  
+To have faith is not to simply take faith on a transactional level.  
+To have faith is to be willing to sacrifice oneself again and again.+++(4)+++  
+Even though the consequence of trusting may be being trustworthy,  
+trust should be unconditional, so also faith.  
+Trust and faith are paradoxical, actually.  
+They make us strong by making us vulnerable.  
+And the weak ones cannot have either of them.
+
 ## The king
 This funny looking old man in his suit was introduced to me as the king when I was twelve. He waived and approached me with a joke that made me laugh hysterically and my father scolded me for being immodest in front of the king. I was grown up enough to know that he was an imposter, as there were photos of the real king in every school book and the real king had recently visited the district shielded with his army. I could recognize the fancy coat of the real king and the discolored coat of this fake. But my father insisted that he is the real king. I knew very little that real kings do not exist, that king is just a concept, that when the public bestows its power upon someone and submits itself, the person becomes the king then and there. And like the modern day England, the king does not need to know the hollowness of its empire and he can keep believing that he is the king. It is like nations submitting to America today.  
 

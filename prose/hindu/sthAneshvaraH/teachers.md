@@ -84,3 +84,47 @@ A jackal entered a dead body eating the body from the bottom and got trapped ins
 Or another was: 
 
 Shani comes and tells Shiva he has to unfortunately rule him for seven and half years. And Shiva laughed and went to samadhi for that long and came back. And said, you see, you could not affect me. And Shani said, Maharaj, my job is done, you had been in hiding all these years.
+
+
+## Guru Dreams
+After a tea and a walk with Anouk,  
+I got inspired to drop a few lines in awakening.  
+Anouk is a higher order yogi from his past programs.  
+The conversation evolved on dreams and bubbles and meta-dreams.  
+
+At one point, I was tempted to cite Nagarjuna, who famously said:  
+"tān asādhyān pracakṣmahe" [I consider them incurable],  
+referring to those who believe themselves to adhere to śunyatā, to emptiness,  
+and who make emptiness yet another dogma.  
+Really, there is nothing that we as humans cannot turn into blind convictions.  
+Every single master who has tried to wake us up,  
+we have given them a bigger dream to live on.  
+From humans to prophets to gods.  
+Because they are not fitting on our regular size,  
+we cut a different size coat for them.
+
+Shamkara dreamt.  
+Being defeated by Bhāratī on his naivity on the art of love-making,  
+Śaṅkara accepts the challenge to go and learn in the school of māyā.  
+In the body of the king, he finds the bosom of the queen and the hips of the concubines  
+far more attractive than those dry lines of reasoning and terse Mīmāṃsā exegesis.  
+If not for Padmapāda, his loyal disciple,  
+he would have never returned back to Guru dream again.
+
+Matsyendra already had the same issue.  
+Here, Matsyendra accepts the challenge and enters into the dream of māyā,  
+but he loves this dream better than Guru dream,  
+and resists waking from it.  
+If not for emaciated Gorakhnath,  
+muscular Matsyendra would have never left the dream-house of sweetness.
+
+Students come and go, just like dreams.  
+For some students, Gurus help shatter their bubble.  
+And some students help crack the shell of their Gurus.  
+Yes, we always say, if not for the students,  
+the Gurus would have entered the dream forever.  
+But after the awakening, how would we know they did not enter the Guru-dream,  
+just another dream with no sweetness.  
+We as disciples will have our final success,  
+if we can put Nagarjuna in one of those Guru-bubbles.  
+For he seems to have rejected that also.
