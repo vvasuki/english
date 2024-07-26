@@ -155,3 +155,72 @@ An astrologer sent a friend request. I rejected. (I think he knew it. He was jus
 For some time I was hurt, as he abruptly stopped responding to my messages. And then I was pissed, as I never demanded anything from him and all I did was shared some funny jokes and may be I expected the same in return. big deal. And then I forgot about him. But memory is such that it has its own way of digging. 
 
 And his name resurfaced afresh. This time I made a mission to find the reasons for his absence from the canvas of my life. And then I found out he was long dead.
+
+
+## Mirror-Image
++++(विश्वासम् अधि लेखितम्। )+++ 
+
+If I say I love my mirror image,  
+you would possibly diagnose narcissism in me.  
+Let me make your job easy:  
+I do not need a mirror image to love myself.  
+But I am curious to know,  
+what is in it that makes the mirror image so loving and at the same time so frightening.
+
+My mirror-image is living my life 30 years backward.  
+We met at a juncture, flowing in the opposite direction.  
+I ran away from the Ashram life and my mirror image from the corporate life.  
+I did not walk out of Ashram life  
+fantasizing the charms of the modern world,  
+but experiencing hollowness within Ashram life.  
+If you cannot see what lies beneath empty smiles and masking garbs in a decade,  
+any world is good enough for you.+++(5)+++  
+I did not abandon one illusion for the sake of the other.  
+I chose the other because the other never claims to be true.+++(5)+++
+
+I once dreamt of Rishi life.  
+And that led to some Ashrams.  
+And that was the end of it.  
+But the idea to be far away from the maddening crowd always remained there.  
+I tried to make a colony of people like myself.  
+I am glad it was never materialized.  
+For that was yet another delusion.  
+
+We live in the aftermath of idealism.  
+Our ancestors adored lady poverty.  
+The narratives of Kaiyata or Udayana still resonate among the pandit households.  
+And sometime recently, our fathers cremated idealism.  
+And they learnt to package the ashes in beautiful bottles  
+and they learnt to make some quick money.+++(5)+++
+
+My mirror image wants to go to the world  
+that was under the dream of Vasistha,  
+the world that was made of idealism.  
+And we created modern society using the cinderblocks of idealism.  
+And my mirror image does not want to face it.  
+This replica of mine is not me though.  
+For he is smart, intelligent, and he can be rich without even selling his soul.  
+But he got into the dream where idealism appeared once.  
+Her beautiful touch, her fragrant breath, her gentle glance.  
+I cannot tell my mirror-image, the shadow he saw of the ideal  
+is merely the ghost from the past, coming to haunt him,  
+torment him of the time that is no more.
+
+Now he has two little kids growing.  
+Just like I once had.  
+And he is giving them this dream, this idealism.  
+I also did the same to my kids.  
+And they grew up, became strangers.  
+Prajapati has given each soul her own dream.  
+When the dreams are not shared,  
+we are nothing but strangers.+++(5)+++ 
+
+My father once said, we are all strangers meeting for some time.+++(5)+++  
+My friend once said, we met like two logs in a flowing river.  
+I envy my mirror-image for living the life that was once mine.  
+But I wish I could talk to this replica of mine one time more.  
+And say why this will just be yet another dream.  
+At the end of the day, I guess we all need some dreams to live by.  
+For if we wake up, we will actualize our loneliness.  
+I do not know why, loneliness scares me.  
+Dreams and delusions have at least charm.
