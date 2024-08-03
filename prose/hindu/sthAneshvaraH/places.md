@@ -188,3 +188,49 @@ Many come to Kumbh-Mela to find a drop of what once was inside the pot +++(follo
 Opposite to the potter’s corner was that of netters’. She was making a mat. Red, white, and dark, all the patterns were a mere fabrication of three colors. The white was not a color: it was just the wool in its natural form. Why red and dark? I asked. I think she did not understand me, as she said ‘just red.’ Or may be she was giving me the basics of philosophy.
 
 Manoj was pulling me out, a bit annoyed that I was focused on pottery and netting and not paying attention to food. Every single food was uniquely made. The food-artists. Even in this heavenly delight of relishing the food, my mind was stuck to the fresh smile of the potter’s wife. I wonder why nobody talks about the potters that make kumbh and make the display of kumbh possible.
+
+## Home
+Floodgate of reminiscence opens with a simple assertion, 'oh, you've reached home!'  
+What a marvelous statement, sweet and innocent.  
+But how difficult it is to answer.  
+The closer I get home, the further away I feel I am.  
+Home, sweet home.  
+How the idea of home escapes all but the walls and rooms  
+and leaves behind memories imprinted on the walls,  
+the musky dust with a few seasonal dews.
+
+All the stuff that I can associate with home are simple.  
+The cacophony of cicada and crickets, basking in the sun going downhill,  
+the paper planes and paper wheels, the wild berries.  
+But these all are meaningful in association with other subjects,  
+the brothers that I played with, the friends that I laughed with.+++(4)+++  
+Either I grew old or time grew old on me,  
+all these luxuries are reserves only to savor from the past.
+And the idea of home comes with sweetness that parents gave, that siblings shared,  
+that personal stories were made of.  
+We were not produced in some factory.  
+But it is our home that became the placeholder for the memories that we savored.
+
+But more than that, home was a safety place.  
+We all felt safe not being judged and being loved unconditionally.  
+Even then, it feels like I am walking away from home.  
+
+They say we work for being happy. No.  
+We work because we have to.  
+Not that are are forced into working but that our nature is working.+++(5)+++  
+And every time, I moved to a new place, I have offered myself to work.
+
+There is some emptiness, a sense of the melancholy,  
+some urge to rediscover myself that comes alongside the concept home.  
+Every time I had to walk away from home to discover myself.  
+Home is so safe. There are mangos and dragonfruits.  
+There are laughters and torments. And this comfort becomes discomforting.  
+Discomforting because I am never used to it.  
+
+Then we invent some wild. And step away from the collective.  
+Every time, individuality gets regained, reintroduced.  
+So many bruises left behind, and so many prints, to last forever.  
+
+I believe the very notion of home has been a placeholder for me  
+to start the journey from and not to conclude it.  
+But now, I am done with rediscovering myself. I want to come home.
