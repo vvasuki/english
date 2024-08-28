@@ -11,14 +11,11 @@ CHRONOLOGICAL LIST OF MAX MULLER’S WORKS
 
 1847 Meghaduta, translation in verse (German) 
 
-Relation of Bengali to the Aboriginal Languages of India 
-1849-73 Rig- Veda and Say ana’s Commentary 
+Relation of Bengali to the Aboriginal Languages of India 1849-73 Rig- Veda and Say ana’s Commentary 
 
-1853 Essay on the Turanian Languages 
-Essay on Indian Logic 
+1853 Essay on the Turanian Languages Essay on Indian Logic 
 
-1854 Proposals for a Uniform Missionary Alphabet 
-Languages of the Seat of War 
+1854 Proposals for a Uniform Missionary Alphabet Languages of the Seat of War 
 
 1856 Essay on Comparative Mythology 
 
@@ -36,8 +33,7 @@ Buddhist Pilgrims
 
 1862 Ancient Hindu Astronomy 
 
-1864 Lectures on the Science of Language, Vol II 
-1866 Hitopadesa, Text, Notes, etc 
+1864 Lectures on the Science of Language, Vol II 1866 Hitopadesa, Text, Notes, etc 
 
 Sanskrit Grammar 
 
@@ -45,8 +41,7 @@ Sanskrit Grammar
 
 1868 Stratification of Language 
 
-1869 Rig- Veda, translation, Vol I 
-Rig- Veda Pratisakhya 
+1869 Rig- Veda, translation, Vol I Rig- Veda Pratisakhya 
 
 1870 Dhammapada, translation 
 
@@ -54,8 +49,7 @@ Rig- Veda Pratisakhya
 
 1873 Rig- Veda in Samhiti and Pada Texts 
 
-Darwin’s Philosophy of Language 
-Introduction to Science of Religion 
+Darwin’s Philosophy of Language Introduction to Science of Religion 
 
 1875 J B Basedow (German) 
 
@@ -88,8 +82,7 @@ APPENDIX II
 
 1888-92 
 
-1889 
-1890-2 
+1889 1890-2 
 
 \*893 
 

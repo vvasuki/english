@@ -23,9 +23,7 @@ In London 1846-47
 
 Settles at Oxford May 1848 
 
-Taylonan Professor of Modern European Languages 1854 
-Fellow of All Souls 1858 
-Marriage 3 August 1859 
+Taylonan Professor of Modern European Languages 1854 Fellow of All Souls 1858 Marriage 3 August 1859 
 
 Fails to get Boden Professorship December i860 
 
