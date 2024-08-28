@@ -2,7 +2,7 @@
 title = "7 VEDA AND VEDANTA"
 
 +++
-
+## Memorization
 I do not wonder that I should have been asked by some of my hearers to devote part of my last lecture to answering the question, how the Vedic literature could have been composed and preserved, if writing was unknown in India before 500 b.c., while the hymns of the Rig-Veda are said to date from 1500 b.c. Classical scholars naturally ask what is the date of our oldest MSS. of the Rig-Veda, and what is the evidence on which so high an antiquity is assigned to its contents. I shall try to answer this question as well as I can, and I shall begin with a humble confession that the oldest MSS. of the Rig-Veda, known to us at present, date not from 1500 b.c., but from about 1500 a.d.
 
 We have therefore a gap of three thousand years, which it will require a strong arch of argument to bridge over.
@@ -65,7 +65,7 @@ But now let us look back. About a thousand years ago a Chinese of the name of I-
 
 In one of his works which we still possess in Chinese, he gives an account of what he saw in India, not only among his own co-religionists, the Buddhists, but likewise among the Brāhmans.[^272]
 
-Of the Buddhist priests he says that after they have learned to recite the five and the ten precepts, they are taught the 400 hymns of Māt_rik_eta, and afterward the 150 hymns of the same poet. When they are able to recite these, they begin the study of the Sūtras of their Sacred Canon. They also learn by heart the Jātakamālā,[^273] which gives an account of Buddha in former states of existence. Speaking of what he calls the islands of the Southern Sea, which he visited after leaving India, I-tsing says: "There are more than ten islands in the South Sea. There both priests and laymen recite the Jātakamālā, as they recite the hymns mentioned before; but it has not yet been translated into Chinese."
+Of the Buddhist priests he says that after they have learned to recite the five and the ten precepts, they are taught the 400 hymns of Mātr̥keta, and afterward the 150 hymns of the same poet. When they are able to recite these, they begin the study of the Sūtras of their Sacred Canon. They also learn by heart the Jātakamālā,[^273] which gives an account of Buddha in former states of existence. Speaking of what he calls the islands of the Southern Sea, which he visited after leaving India, I-tsing says: "There are more than ten islands in the South Sea. There both priests and laymen recite the Jātakamālā, as they recite the hymns mentioned before; but it has not yet been translated into Chinese."
 
 \[230\]
 
@@ -108,6 +108,8 @@ I mentioned that the earliest inscriptions discovered in India belong to the rei
 What follows from this? First, that the archaic Sanskrit of the Veda had ceased to be spoken before the third century b.c. Secondly, that even the later grammatical Sanskrit was no longer spoken and understood by the people at large; that Sanskrit therefore had ceased, nay, we may say, had long ceased to be the spoken language of the country when Buddhism arose, and that therefore the youth and manhood of the ancient Vedic language lie far beyond the period that gave birth to the teaching of Buddha, who, though he may have known Sanskrit, and even Vedic Sanskrit, insisted again and again on the duty that his disciples should preach his doctrines in the language of the people whom they wished to benefit.
 
 - - -
+
+## Religions
 
 And now, when the time allotted to me is nearly at an end, I find, as it always happens, that I have not been able to say one half of what I hoped to say as to the lessons to be learned by us in India, even with regard to this one branch of human knowledge only, the study of the origin of religion. I hope, however, I may have succeeded in showing you the entirely new aspect which the old problem of the _theogony_, or the origin and growth of the Devas or gods, assumes from the light thrown upon it by the Veda. Instead of positive theories, we now have positive facts, such as you look for in vain anywhere else; and though there is still a considerable interval between the Devas of the Veda, even in their highest form, and such concepts as Zeus, Apollon, and Athene, yet the chief riddle is solved, and we\[236\] know now at last what stuff the gods of the ancient world were made of.
 
@@ -295,7 +297,7 @@ And thus, as a thoughtful look on nature led to the first perception of bright g
 These three Beyonds are the three revelations of antiquity; and it is due almost entirely to the discovery of the Veda that we, in this nineteenth century of ours, have been allowed to watch again these early phases of thought and religion, which had passed away long before the beginnings of other literatures.[^337] In the Veda an ancient city has been laid bare before our eyes which, in the history of all other religions, is filled up with rubbish, and built over by new architects. Some of the earliest and most instructive scenes of our distant childhood have risen once more above the horizon of our \[265\]memory which, until thirty or forty years ago, seemed to have vanished forever.
 
 - - -
-
+## Indian philosophy
 Only a few words more to indicate at least how this religious growth in India contained at the same time the germs of Indian philosophy. Philosophy in India is, what it ought to be, not the denial, but the fulfilment of religion; it is the highest religion, and the oldest name of the oldest system of philosophy in India is Vedānta, that is, the end, the goal, the highest object of the Veda.
 
 Let us return once more to that ancient theologian who lived in the fifth century b.c., and who told us that, even before his time, all the gods had been discovered to be but three gods, the gods of the _Earth_, the gods of the _Air_, and the gods of the _Sky_, invoked under various names. The same writer tells us that in reality there is but _one_ God, but he does not call him the Lord, or the Highest God, the Creator, Ruler, and Preserver of all things, but he calls him Ātman, the Self. The one Ātman or Self, he says, is praised in many ways owing to the greatness of the godhead. And then he goes on to say: "The other gods are but so many members of the one Ātman, Self, and thus it has been said that the poets compose their praises according to the multiplicity of the natures of the beings whom they praise."
@@ -379,6 +381,7 @@ If you think that I exaggerate, let me read you in conclusion what one of the gr
 "In the whole world there is no study so beneficial and so elevating as that of the Upanishads. It has been the solace of my life—it will be the solace of my death."[^346]
 
 - - -
+## Conclusion
 
 I have thus tried, so far as it was possible in one course of lectures, to give you some idea of ancient India, of its ancient literature, and, more particularly, of its ancient religion. My object was, not merely to place names and facts before you, these you can find in many published books, but, if possible, to make you see and feel the general human interests that are involved in \[275\]that ancient chapter of the history of the human race. I wished that the Veda and its religion and philosophy should not only seem to you curious or strange, but that you should feel that there was in them something that concerns ourselves, something of our own intellectual growth, some recollections, as it were, of our own childhood, or at least of the childhood of our own race. I feel convinced that, placed as we are here in this life, we have lessons to learn from the Veda, quite as important as the lessons we learn at school from Homer and Virgil, and lessons from the Vedānta quite as instructive as the systems of Plato or Spinoza.
 

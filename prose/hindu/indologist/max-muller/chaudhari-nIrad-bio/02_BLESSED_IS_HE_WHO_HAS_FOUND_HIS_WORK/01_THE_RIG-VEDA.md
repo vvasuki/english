@@ -6,7 +6,7 @@ Chapter I
 
 THE RIG-VEDA 
 
-It took Max Muller five years of continuous labour, which was partly mechanical drudgery, to complete the editing and printing of only the first volume of his edition of the Rig-Veda To understand the spirit and motivation of this project as well as his interest in the wider field of Sanskrit literature as a whole, it is necessary to take note of a basic contrast , that which existed between the German and English attitudes towards India in his young days This is essential because in his own position there was an amalgamation of the two He began as a purely German Indophile and Indologist, and soon assumed the roles in their Bntish form, without however losing his original affiliation and inspiration 
+It took Max Muller five years of continuous labour, which was partly mechanical drudgery, to complete the editing and printing of only the first volume of his edition of the Rig-Veda To understand the spirit and motivation of this project as well as his interest in the wider field of Sanskrit literature as a whole, it is necessary to take note of a basic contrast , that which existed between the German and English attitudes towards India in his young days This is essential because in his own position there was an amalgamation of the two He began as a purely German Indophile and Indologist, and soon assumed the roles in their British form, without however losing his original affiliation and inspiration 
 
 Generally speaking India attracted Continental Europeans, especially the Germans, and repelled the British This difference persisted even down to the last quarter of the nineteenth century For instance, when Sir Henry Maine in 1875 delivered the Rede Lecture before the University of Cambridge on ‘The Effects of Observation of India on Modern European Thought’, he began by remarking that in speaking on a subject connected with India he would under ordinary circumstances preface what he had to say with an apology But the proverbial dullness attributed to Indian topics by Englishmen, he continued, did not reflect any particular credit on the latter, nor was it felt by the learned classes in any other country Then he described the situation on the Continent. 
 
@@ -17,7 +17,7 @@ No one can observe the course of modern thought and enquiry on the Continent, an
 124 
 
 
-SCHOLAR EXTRAORDINARY 
+
 
 
 one can avoid seeing that their view of India affects in some degree their view of England, and the community, which is stigmatised more systematically on the Continent than it is perhaps aware, as a nation of shopkeepers, is thought to have had a halo of romance spread around it by its great possession 
@@ -259,7 +259,7 @@ Max Muller steadily produced the sheets, and in two years finished the editing a
 140 
 
 
-SCHOLAR EXTRAORDINARY 
+
 
 
 Sir, 
