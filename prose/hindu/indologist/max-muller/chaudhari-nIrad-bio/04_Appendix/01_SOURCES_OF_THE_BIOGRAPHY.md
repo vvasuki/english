@@ -7,7 +7,7 @@ Appendix I
 
 SOURCES OF THE BIOGRAPHY 
 
-(Citations from Max Muller’s writings and correspondence are in his own English, except when a book or a letter is in German The lists in this and Appendix II specify which are in that language The languages of his non- British correspondents [except Indians, who wrote in English] were their own All citations from any source in German are given in Mrs Max Muller’s translation ) 
+(Citations from Max Muller’s writings and correspondence are in his own English, except when a book or a letter is in German The lists in this and Appendix II specify which are in that language The languages of his nonBritish correspondents [except Indians, who wrote in English] were their own All citations from any source in German are given in Mrs Max Muller’s translation ) 
 
 Pnnted Sources 
 
@@ -23,7 +23,7 @@ Manuscript Sources
 
 A large volume of Max Muller’s papers and other material is in the Bodleian, and is fully catalogued They are classified under the following heads 
 
-A Letters, B Journals, C Writings of Max Muller , D Honours con- ferred on Max Muller , E Miscellanea , F Printed Material , G Papers of Other Members of the Family, H Coins and Medals The most important papers are the following 
+A Letters, B Journals, C Writings of Max Muller , D Honours conferred on Max Muller , E Miscellanea , F Printed Material , G Papers of Other Members of the Family, H Coins and Medals The most important papers are the following 
 
 Letteis to his mother in German Letters to his wife Letters to Bunsen in German Letters to various British Personages Letters connected with his resignation of the Oxford Professorship 
 

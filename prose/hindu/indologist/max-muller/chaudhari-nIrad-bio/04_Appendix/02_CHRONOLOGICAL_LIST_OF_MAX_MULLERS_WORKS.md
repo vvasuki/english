@@ -11,7 +11,7 @@ CHRONOLOGICAL LIST OF MAX MULLER’S WORKS
 
 1847 Meghaduta, translation in verse (German) 
 
-Relation of Bengali to the Aboriginal Languages of India 1849-73 Rig- Veda and Say ana’s Commentary 
+Relation of Bengali to the Aboriginal Languages of India 1849-73 RigVeda and Say ana’s Commentary 
 
 1853 Essay on the Turanian Languages Essay on Indian Logic 
 
@@ -41,13 +41,13 @@ Sanskrit Grammar
 
 1868 Stratification of Language 
 
-1869 Rig- Veda, translation, Vol I Rig- Veda Pratisakhya 
+1869 RigVeda, translation, Vol I RigVeda Pratisakhya 
 
 1870 Dhammapada, translation 
 
 1871 Letters on the War 
 
-1873 Rig- Veda in Samhiti and Pada Texts 
+1873 RigVeda in Samhiti and Pada Texts 
 
 Darwin’s Philosophy of Language Introduction to Science of Religion 
 
@@ -114,7 +114,7 @@ Gifford Lectures, four vols,
 
 Science of Language, three Lectures 
 
-Rig- Veda, new edition 
+RigVeda, new edition 
 
 Apastamba Sutras, translated 
 

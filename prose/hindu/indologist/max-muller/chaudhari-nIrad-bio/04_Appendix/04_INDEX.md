@@ -8,9 +8,9 @@ title = "04 INDEX"
 
 A 
 
-Abehen, Dr (Prussian diplomat & Bis- marck’s Secretary), 250, 251 
+Abehen, Dr (Prussian diplomat & Bismarck’s Secretary), 250, 251 
 
-Agamya Yogmdra (Indian holy man), 368 Albany, Duke of (Prmce Leopold, Q Vic- toria’s son), 230, 294 Albert, Prince Consort, 
+Agamya Yogmdra (Indian holy man), 368 Albany, Duke of (Prmce Leopold, Q Victoria’s son), 230, 294 Albert, Prince Consort, 
 
 62, 184, 276 
 
@@ -20,11 +20,11 @@ Albiruni (Islamic scholar),
 
 All Souls College, Oxford life at, 169, 346 M in a Fellow, 220 Alsace-Lorraine question 248 ff 
 
-Amiel, Journal , 85 Anandi Bai Joshi, 302 Anglo- German friendship, 
+Amiel, Journal , 85 Anandi Bai Joshi, 302 AngloGerman friendship, 
 
 247, 251-2, 255 Anhalt-Dessau, 
 
-Duchy of, 14, 19ft princes of, 15 ff M in ’s relations with, 19 animals & language, 193-4 mthropology, language and, 313-14 mythology and, 364, 380 religion and, 381 Archer, William, 133 Argyll, 8th Duke of, 192, 195, 207 ff , 208, 321 Arnold, Matthew, 100 Aryan race, 313 ff Asiatic Researches (per- iodical), 127 atheism in relation to religion, 377 
+Duchy of, 14, 19ft princes of, 15 ff M in ’s relations with, 19 animals & language, 193-4 mthropology, language and, 313-14 mythology and, 364, 380 religion and, 381 Archer, William, 133 Argyll, 8th Duke of, 192, 195, 207 ff , 208, 321 Arnold, Matthew, 100 Aryan race, 313 ff Asiatic Researches (periodical), 127 atheism in relation to religion, 377 
 
 Aufrecht, Dr S T , 141 ff , 261 
 
@@ -41,7 +41,7 @@ Bengali language, 50, 81 Berlin, 39 ff, 107 ff Besant, Mrs Annie, 328
 
 Beveridge, Bishop, 351 Bhandarhar, R G , 3, 305 Bidder, H J (Vicar of St Giles, Oxfoid), 336, 370 
 
-Bismarck, Prince M in on, 242, 244 Blavatsky, Mme (Theo- sophist), 327 ff Blennerhasset, Lad}, v Boden Piofessorship of Sanskrit, Oxford, 
+Bismarck, Prince M in on, 242, 244 Blavatsky, Mme (Theosophist), 327 ff Blennerhasset, Lad}, v Boden Piofessorship of Sanskrit, Oxford, 
 
 221 ff Boer War 
 
@@ -51,7 +51,7 @@ Bonaparte, Prince Lucien, 62
 
 Bopp, Franz (philologist), 41, 179 
 
-Brahmo religious move- ment, 298, 326 British Association meet- ing 1847, 61 Biitish rule in India Bengali opinion, 208 M in on, 341 Brockhaus, Professor 
+Brahmo religious movement, 298, 326 British Association meeting 1847, 61 Biitish rule in India Bengali opinion, 208 M in on, 341 Brockhaus, Professor 
 
 (German Sanskntist), 37, 80-1, 142 Bronte, Charlotte, 165 Browning, Robert, 3, 152, 374 
 
@@ -65,7 +65,7 @@ Carita, La, 373 ff Carlyle, Thomas, 7, 246,
 
 Carmen Sylva (Queen of Rumania), 2 Carroll, Lewis 
 
-love affair of, 153, and M in ’s professor- ship, 233 
+love affair of, 153, and M in ’s professorship, 233 
 
 Cams, Prof (familv friend), 28 Cetts, Baron von, 46 
 
@@ -78,17 +78,17 @@ Christ & Christianity M in ’s approach to, 71
 
 73 ff 
 
-M in ’s exposition, 331- 332 , 376 , 
+M in ’s exposition, 331332 , 376 , 
 
 M in ’s faith in, 163 Christianity & Brahmo movement, 333 ff Colebrooke, H T (English Orientahst) on Vedic literature, 
 
 127, 137 
 
-Comparative philology see philology, com- parative 
+Comparative philology see philology, comparative 
 
-Conway, Moncure D , 5, 146, 246, 259 Cowell, E B , 261 Cox, Sir George, (mytho- logy t), 314 
+Conway, Moncure D , 5, 146, 246, 259 Cowell, E B , 261 Cox, Sir George, (mythology t), 314 
 
-Coxe (Bodley’s Libra- rian), 229 
+Coxe (Bodley’s Librarian), 229 
 
 Crimean War, 181 ff Curzon, Lord, 310, 321 
 
@@ -100,7 +100,7 @@ Dalip Smgh, Maharaja,
 
 Darwin, Charles 
 
-on evolution and lan- guage, 192 ff M in ’s controversy with, 256 ff Darwin George, 258 Dayananda Saraswati (Hindu religious re- former), 327 > 358 Delane, J T (editor of The Times), 241 Dessau 
+on evolution and language, 192 ff M in ’s controversy with, 256 ff Darwin George, 258 Dayananda Saraswati (Hindu religious reformer), 327 > 358 Delane, J T (editor of The Times), 241 Dessau 
 
 town and inhabitants, 
 
@@ -126,7 +126,7 @@ official and writer), 3 Dyer, General, 303
 
 E 
 
-East India Company patronage of the Rig- Veda , 60, 138, 140 M in J s support for, 342 Egypt, 342 Ellesmere, Lord, 58 Emerson, R W , 176 Emilie, Cousin (Baroness Stolzenberg), 36 England 
+East India Company patronage of the RigVeda , 60, 138, 140 M in J s support for, 342 Egypt, 342 Ellesmere, Lord, 58 Emerson, R W , 176 Emilie, Cousin (Baroness Stolzenberg), 36 England 
 
 M in \*s arrival m, 53 Germany and, 105-06, 109, 231 
 
@@ -136,7 +136,7 @@ English manners, 59 evolution and language, 192
 
 expatriate life, 48 F 
 
-Farrar, Canon F W (after- wards Dean of Canterbury), 98, 229 Fontanes, T (German writer), 36 
+Farrar, Canon F W (afterwards Dean of Canterbury), 98, 229 Fontanes, T (German writer), 36 
 
 Franco -Prussian War, 242-252 
 
@@ -152,7 +152,7 @@ French nation and, 246 Gladstone and, 247-8,
 
 249, 250 
 
-Mrs in M on, 247, 257 Franz, Duke of Anhalt- Dessau, 16 ff Frazer, Sir James G , 364, 3 Bo 
+Mrs in M on, 247, 257 Franz, Duke of AnhaltDessau, 16 ff Frazer, Sir James G , 364, 3 Bo 
 
 French Revolution 1848, 63 ff 
 
@@ -204,7 +204,7 @@ decay of 323 ff Dharma, 309 ferment m, 321 M in ’s attitude to,
 
 321, 337 
 
-over-rating and under- rating of, 358, reform, 325 revivalism, 320 stages of life, 344 Vedic form, 322 Vedic form, reversion to, X45, 262 Humboldt, Alexander \on, 40, 108 
+over-rating and underrating of, 358, reform, 325 revivalism, 320 stages of life, 344 Vedic form, 322 Vedic form, reversion to, X45, 262 Humboldt, Alexander \on, 40, 108 
 
 I 
 
@@ -260,7 +260,7 @@ musical opinions, 82,
 
 83 
 
-opinions on, 146, 261- 3, 347 
+opinions on, 146, 2613, 347 
 
 outlook on life, 7 ff Pans, 45 ff Partisan spirit absent in, 246 
 
@@ -291,7 +291,7 @@ Napoleon I, 17 nationalism, 245
 
 L 
 
-Lang, Andrew, 364 ff Language (see Pt II, Ch 3), also under Philo- logy, animals and, 193-4 
+Lang, Andrew, 364 ff Language (see Pt II, Ch 3), also under Philology, animals and, 193-4 
 
 appraisement of in M ’s work, 200 ff Crimean War, 181 Darwin’s theory, 192 ff , 256 ff 
 
@@ -382,7 +382,7 @@ O
 
 Oberammergau play, 71-2 
 
-Olcott, Colonel (Theo- sophist), 328 
+Olcott, Colonel (Theosophist), 328 
 
 Orientalists (English), 
 
@@ -396,7 +396,7 @@ Oxford ( see Pt I, Ch 4, Pt II, Ch 4 concert 1876, 234 constitution, 102 disresp
 
 education at, 93, 204, 210 ff 
 
-German influence, 99 imperialistic re- orientation, 205 income of colleges and university, 212 Indian students, 205 ff intellectual atmosphere, 218 
+German influence, 99 imperialistic reorientation, 205 income of colleges and university, 212 Indian students, 205 ff intellectual atmosphere, 218 
 
 Jowett at, 213 ff Magna , 209 money-management, 212 
 
@@ -474,7 +474,7 @@ influence on Hinduism, 90, 145, 310 MSS in Pans, 138 MSS in London, 53, 55 opini
 
 Rose (English Latinist), 381 
 
-Roth, Rudolph (Vedic scholar), 138 Routh, Dr in J , 94 Roy, Rammohun (Indian leformer), 325 ff Ruckert, Friedrich (Ger- man poet), 40 ff Ruskin, John, 7, 374 Russell, Sir William (war coi respondent), 53 
+Roth, Rudolph (Vedic scholar), 138 Routh, Dr in J , 94 Roy, Rammohun (Indian leformer), 325 ff Ruckert, Friedrich (German poet), 40 ff Ruskin, John, 7, 374 Russell, Sir William (war coi respondent), 53 
 
 
 S 
@@ -483,7 +483,7 @@ Sacred Books of the East, The , 348 ff
 
 Salisbury, Lord (prime minister), 253, 350, 366 
 
-Sanskrit (language, litera- ture, learning) beginnings in Europe, 126 
+Sanskrit (language, literature, learning) beginnings in Europe, 126 
 
 Boden Professorship, 221 ff 
 
@@ -527,7 +527,7 @@ scholarship in Pans, 52 Wilson on, 13 1 renaissance of 289, 291
 
 Sarto, Andrea del, 373 ff 
 
-Schelhng, Friedrich (Ger- man philosopher), 
+Schelhng, Friedrich (German philosopher), 
 
 41 ff 
 
@@ -585,11 +585,11 @@ interest in in M , 366 Vivekananda, Swami (Hindu religious reformer), 263, 329
 
 W 
 
-Wagner, Mme de (M Moncalm), 178 Walrond, T (brother-in- law of in M ), 232 Warfield, E D (American scholar), 346 Welby, Lady, 351, 355 Westminster Abbey lectures of in M in, 336, 357 
+Wagner, Mme de (M Moncalm), 178 Walrond, T (brother-inlaw of in M ), 232 Warfield, E D (American scholar), 346 Welby, Lady, 351, 355 Westminster Abbey lectures of in M in, 336, 357 
 
-Whitney, W D (Ameri- can philologist), 258- 61 
+Whitney, W D (American philologist), 25861 
 
-Wilberforce, Bishop Samuel, 59 Wilhelm Master , 7 5 Wilkins (English Oriental- ist), 126 
+Wilberforce, Bishop Samuel, 59 Wilhelm Master , 7 5 Wilkins (English Orientalist), 126 
 
 Wilson, H H (English Sanskritist), 55, 56 disagreement with M in , 106 
 
