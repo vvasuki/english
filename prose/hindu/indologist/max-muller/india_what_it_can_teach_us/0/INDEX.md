@@ -1,0 +1,666 @@
++++
+title = "INDEX"
+
++++
+
+-   **A.**
+-   Abba Seen river, [192](#Page_192).
+-   Abraiaman, [74](#Page_74).
+-   Abu Fazl, on the Hindus, [75](#Page_75).
+-   Active side of human nature in Europe, [120](#Page_120).
+-   Aditi, meaning of, [215](#Page_215).
+-   Āditya, [158](#Page_158).
+-   Ādityas, [215](#Page_215).
+-   Adrogha, [83](#Page_83).
+-   Aerial gods, [168](#Page_168).
+-   Afghanistan, [159](#Page_159);
+  -   inhabitants of, [189](#Page_189).
+-   Agni, god of fire, [167](#Page_167).
+-   Agni-ignis, fire, [41](#Page_41);
+  -   as a terrestrial deity, [195](#Page_195).
+-   Aitareya Brāhmana, on heaven and earth, [175](#Page_175).
+-   Alexander the Great, [37](#Page_37);
+  -   changes the name of a river, [191](#Page_191).
+-   All-Sacrifice, the, [85](#Page_85).
+-   Alphabet, the, whence derived, [86](#Page_86);
+  -   Ionian and Phœnician, [222](#Page_222);
+  -   two used in Asoka's inscription, [225](#Page_225).
+-   Amitābha worship, [106](#Page_106).
+-   Anaxagoras, his doctrine, [177](#Page_177).
+-   Ancestors, spirits of, [238](#Page_238);
+  -   worship of, [239](#Page_239).
+-   Animism, [130](#Page_130).
+-   Aurita, [83](#Page_83).
+-   Archæological survey of India, [26](#Page_26).
+-   Arrian, on the Hindus, [73](#Page_73);
+  -   rivers known to, [191](#Page_191).
+-   Aryans, the, our intellectual relatives, [33](#Page_33);
+  -   seven branches of, [41](#Page_41);
+  -   found in Sanskrit literature, [116](#Page_116);
+  -   religion of, [161](#Page_161).
+-   Asmi, I am, [43](#Page_43).
+-   Asoka, king, [96](#Page_96);
+  -   adopts Buddhism, [106](#Page_106);
+  -   author of the first inscriptions, [225](#Page_225);
+  -   language of the same, [234](#Page_234).
+-   Astronomy, ancient, in India, [114](#Page_114);
+  -   in the Veda, [150](#Page_150);
+  -   in China, [151](#Page_151).
+-   Ātman, the Self, [265](#Page_265).
+-   Avatāras of Vishnu, three, [153](#Page_153).
+
+-   **B.**
+-   Babylonian division of time, [36](#Page_36);
+  -   influences on Vedic poems, [145](#Page_145);
+  -   on Vedic astronomy, [147](#Page_147);
+  -   zodiac, [158](#Page_158).
+-   Barzôi, [114](#Page_114).
+-   Bastian, on the Polynesian myths, [169](#Page_169).
+-   Bengal, the people of, [55](#Page_55);
+  -   villages of, [65](#Page_65);
+  -   schools in, [80](#Page_80).
+-   Bengali, [161](#Page_161).
+-   Bhagavadgītā, [272](#Page_272).
+-   Bhagavat, supreme lord, [272](#Page_272).
+-   Bimetallic currency, [37](#Page_37).
+-   Bhīshma, death of, [83](#Page_83).
+-   Bible, the, Sanskrit words in, [28](#Page_28);
+  -   and the Jewish race, [140](#Page_140).
+-   Bibliographical survey of India, [102](#Page_102).
+-   Books read by ancient nations compared with modern, [137](#Page_137).
+-   Bopp, his comparative grammar, [46](#Page_46).
+-   Brahma sacrifice, [249](#Page_249).
+-   Brahma Samāj, of india, [163](#Page_163).
+-   Brāhmana, [162](#Page_162).
+-   Brāhmanas, on truth, [84](#Page_84);
+  -   as a class, [256](#Page_256).
+-   Buddha and the popular dialects, [96](#Page_96).
+-   Buddhism, chief source of our fables, [27](#Page_27);
+  -   striking coincidences with Christianity, [108](#Page_108);
+  -   its rise, [234](#Page_234).
+-   Burnouf, [115](#Page_115).
+
+-   **C.**
+-   Cabul river, [192](#Page_192).
+-   Cæsar, on the Druids and their memorizing, [233](#Page_233).
+-   Canaan, [140](#Page_140).
+-   Carlyle, his opinion of historical works, [xvi](#Page_xvi).
+-   Caste, origin of, [117](#Page_117);
+  -   in the laws of Manu, [117](#Page_117);
+  -   in the Rig-Veda, [117](#Page_117).
+-   Cat, the domestic, its original home, [42](#Page_42).
+-   China, origin of the name, [151](#Page_151);
+  -   chronicles of, [104](#Page_104);
+  -   lunar stations of, [150](#Page_150);
+  -   aspects of religion, [264](#Page_264).
+-   Christian religion, the, and the Jewish race, [35](#Page_35).
+-   Civil service examinations, Indian, [20](#Page_20).
+-   Climatic influences on morals and social life, [120](#Page_120).
+-   Coins of India, [26](#Page_26).
+-   Colebrooke's religious ceremonies, [247](#Page_247).
+-   Commercial honor in India, [82](#Page_82).
+-   Commerce between India and Syria in Solomon's time, [28](#Page_28).
+-   Commercial writing, [225](#Page_225).
+-   Confucius, a hard student, [230](#Page_230). \[278\]
+-   Conquerors of India, [30](#Page_30).
+-   Coulanges, Professor, his opinion on religious beliefs, [245](#Page_245).
+-   Cunningham's Ancient Geography of India, [192](#Page_192).
+-   Cylinders of Babylon, [139](#Page_139).
+
+-   **D.**
+-   Dacoits, [79](#Page_79).
+-   Darwin, [141](#Page_141).
+-   Dawn, the, [173](#Page_173).
+-   Dayānanda's introduction to the Rig-Veda, [104](#Page_104).
+-   Deluge, the, [153](#Page_153);
+  -   in Hindu literature, [154](#Page_154);
+  -   not borrowed from the Old Testament, [157](#Page_157);
+  -   its natural origin, [159](#Page_159).
+-   Departed spirits, [237](#Page_237);
+  -   honors paid to, [240](#Page_240);
+  -   ceremonies to, [246](#Page_246).
+-   Deva, [159](#Page_159);
+  -   the meaning of, [236](#Page_236).
+-   Devapatnīs, wives of the gods, [164](#Page_164).
+-   Devāpi's prayer for rain, [204](#Page_204).
+-   Development of human character in India and Europe, [118](#Page_118).
+-   Dialects in Asoka's time, [106](#Page_106).
+-   Diphthera, [222](#Page_222).
+-   Divi Manes, [240](#Page_240).
+-   Donkey, in the lion's skin, [27](#Page_27);
+  -   in the tiger's skin, [28](#Page_28).
+-   Druids, their memory, [233](#Page_233).
+-   Dyaus and Zeus, [213](#Page_213).
+
+-   **E.**
+-   Êabānī, [158](#Page_158).
+-   East, the, our original home, [49](#Page_49).
+-   Ecliptic, Indian, [153](#Page_153).
+-   Education of the human race, [107](#Page_107).
+-   Education in India, by training the memory, [232](#Page_232).
+-   Egyptian hieroglyphics preserved in the alphabet, [36](#Page_36).
+-   Elphinstone, Mountstuart, his opinion of the Hindus, [77](#Page_77).
+-   English officers in India, [69](#Page_69).
+-   English oriental scholars, a list of, [22](#Page_22).
+-   Eos and Ushas, [201](#Page_201).
+-   Esthonian prayer to Picker, the god of thunder, [211](#Page_211).
+-   Euripides, on the marriage of heaven and earth, [177](#Page_177).
+-   Examinations, work produced at, [20](#Page_20).
+
+-   **F.**
+-   Fables, migration of, [27](#Page_27).
+-   Falsehood, no mortal sin, five cases of, [89](#Page_89).
+-   Fathers, Hymn to the, [241](#Page_241).
+-   Finite, the, impossible without the infinite, [126](#Page_126).
+-   Fire, names for, [41](#Page_41);
+  -   as a civilizer, [195](#Page_195);
+  -   a terrestrial deity, [195](#Page_195);
+  -   why worshipped, [196](#Page_196).
+-   Five nations, the, [117](#Page_117).
+-   Five sacrifices, religious duties, [249](#Page_249).
+-   Fravashis, in Persia, [240](#Page_240).
+-   Frederick the Great, [34](#Page_34).
+-   Friar Jordanus, opinion of Hindu character, [75](#Page_75).
+-   Funeral ceremonies, [248](#Page_248);
+  -   an earlier worship, [252](#Page_252);
+  -   striking coincidences, [253](#Page_253);
+  -   burial and cremation, [253](#Page_253).
+
+-   **G.**
+-   Gainas, language of, [97](#Page_97).
+-   Galileo, his theory, [135](#Page_135).
+-   Ganges, sources of, [96](#Page_96);
+  -   its tributaries, [187](#Page_187).
+-   Gātaka, [30](#Page_30).
+-   Gāthās, [107](#Page_107).
+-   Gautama allows a lie, [88](#Page_88).
+-   Germany, study of Sanskrit in, [22](#Page_22).
+-   Gems, the nine, [114](#Page_114).
+-   Gill, Rev. W., myths and songs of the South Pacific, [169](#Page_169);
+  -   savage life in Polynesia, [233](#Page_233).
+-   Gods in the Veda, their testimony for truth, [83](#Page_83);
+  -   the number of, [164](#Page_164);
+  -   river gods and goddesses, [167](#Page_167);
+  -   made and unmade by men, [182](#Page_182);
+  -   growth of a divine conception in the human mind, [198](#Page_198).
+-   Golden Rule, the, [92](#Page_92).
+-   Goethe's West-östlicher Divan, [22](#Page_22).
+-   Gokulaji, the model native statesman, [271](#Page_271).
+-   Grassman, translation of Sanskrit words, [183](#Page_183).
+-   Greek alphabet, age of, [221](#Page_221).
+-   Greek literature, its study and use, [23](#Page_23);
+  -   when first written, [222](#Page_222).
+-   Greek deities, their physical origin, [129](#Page_129).
+-   Greek philosophy our model, [38](#Page_38).
+-   Greek and Latin, similarity between, [40](#Page_40).
+-   Grimm, identification of Parganya and Perūn, [210](#Page_210).
+-   Growth of ancient religions, [128](#Page_128).
+-   Grunau on old Prussian gods, [210](#Page_210).
+-   Guide-books, Greek, [223](#Page_223).
+-   Gymnosophists, Indian, [123](#Page_123).
+
+-   **H.**
+-   Hardy, his Manual of Buddhism, [97](#Page_97).
+-   Hastings, Warren, and the Darics, [216](#Page_216);
+  -   opinion of Hindu character, [79](#Page_79).
+-   Hebrew religion, foreign influences in, [145](#Page_145).
+-   Heber, Bishop, opinion of the Hindus, [79](#Page_79).
+-   Heaven and Earth, [169](#Page_169);
+  -   Māori legend of, [173](#Page_173);
+  -   Vedic legends of, [175](#Page_175);
+  -   Greek legends of, [176](#Page_176);
+  -   epithets for, in Veda, [178](#Page_178);
+  -   as seen by Vedic poets, [178](#Page_178).
+-   Henotheism, [166](#Page_166).
+-   Herodotus, [223](#Page_223).
+-   Hindus, truthful character of, [52](#Page_52);
+  -   the charge of their untruthfulness refuted, [53](#Page_53);
+  -   origin of the charge, [54](#Page_54);
+  -   different races and characteristics of, [55](#Page_55);
+  -   testimony of trustworthy witnesses, [55](#Page_55);
+  -   their litigiousness, [60](#Page_60);\[279\]
+  -   their treatment by Mohammedan conquerors, [72](#Page_72);
+  -   reason for unfavorable opinion of, [76](#Page_76);
+  -   their commercial honor, [82](#Page_82);
+  -   their real character transcendent, [126](#Page_126);
+  -   their religion, [127](#Page_127);
+  -   sacrifices and priestly rites, [148](#Page_148);
+  -   knowledge of astronomy, [153](#Page_153);
+  -   first acquainted with an alphabet, [224](#Page_224).
+-   Hindustani, [95](#Page_95).
+-   Hiranyagharba, [164](#Page_164).
+-   History, its object and study, [34](#Page_34);
+  -   its true sense, [44](#Page_44).
+-   Hitopadesa, fables of, [110](#Page_110).
+-   Hottentot river names, [188](#Page_188).
+-   Homeric hymns, [140](#Page_140);
+  -   heaven and earth in the, [176](#Page_176).
+-   Human Mind, study of, India important for, [33](#Page_33).
+-   Humboldt Alexander von, on Kālidāsa, [110](#Page_110).
+-   Hydaspes, [192](#Page_192).
+-   Hydraotis, or Hyarotis, [191](#Page_191).
+-   Hypasis, or Hyphasis, [191](#Page_191).
+
+-   **I.**
+-   Idā, [156](#Page_156).
+-   Idrisi, on the Hindus, [74](#Page_74).
+-   Ijjar, April-May, [158](#Page_158).
+-   India, what it can teach us, [19](#Page_19);
+  -   a paradise, [24](#Page_24);
+  -   its literature a corrective, [24](#Page_24);
+  -   past and present aspects of, [25](#Page_25);
+  -   its scientific treasures, [25](#Page_25);
+  -   a laboratory for all students, [32](#Page_32);
+  -   its population and vast extent, [142](#Page_142).
+-   Indra, god of the wind, the Vedic Jupiter, [83](#Page_83);
+  -   the Aryan guide, [116](#Page_116);
+  -   the god of the thunderstorm, [168](#Page_168);
+  -   as creator, [180](#Page_180);
+  -   the principal god of the Veda, [198](#Page_198);
+  -   peculiar to India, [201](#Page_201).
+-   Indus, The river, [167](#Page_167).
+-   Infinite, The, [126](#Page_126).
+-   Inner Life, Influence of Indian literature upon our, [24](#Page_24).
+-   Inscriptions in India, [225](#Page_225).
+-   Ionians, The, their alphabet, [222](#Page_222);
+  -   first writing, [223](#Page_223).
+-   I-tsing, his visit to India, [229](#Page_229);
+  -   his account of Buddhist priests, [229](#Page_229);
+  -   of education, [230](#Page_230);
+  -   of perfection of memory, [231](#Page_231);
+  -   of Brahmans, [231](#Page_231).
+-   Izdubar, or Nimrod, the poem of, [158](#Page_158).
+
+-   **J.**
+-   Jehovah, [200](#Page_200).
+-   Jews, The, as a race, [36](#Page_36);
+  -   their religion as related to Oriental religions, [36](#Page_36);
+  -   necessary to a study of the Christian religion, [35](#Page_35);
+  -   the beginning and growth of their religion, [128](#Page_128).
+-   Jones, Sir William, his voyage to India, [49](#Page_49);
+  -   his dreams become realities, [50](#Page_50).
+-   Joshua's battle, [200](#Page_200).
+-   Journals, Sanskrit, now published in India, [98](#Page_98).
+-   Judgment of Solomon, [30](#Page_30).
+-   Junāgadh, [271](#Page_271).
+-   Jupiter, [201](#Page_201).
+-   Jumna, the river, [190](#Page_190).
+-   Jurisprudence in India, [30](#Page_30).
+-   Justice of the Indians, [74](#Page_74).
+
+-   **K.**
+-   Kālidāsa, the poet, his age, [110](#Page_110);
+  -   plays of, [111](#Page_111).
+-   Kamal-eddin Abd-errazak, on the Hindus, [75](#Page_75).
+-   Kausika, punished for truthfulness, [89](#Page_89).
+-   Kanishka, the Saka king, [106](#Page_106).
+-   Kanjur, the women and the child in the, [29](#Page_29).
+-   Kāthaka, or reader, [158](#Page_158).
+-   Kathenotheism, [166](#Page_166).
+-   Keshub Chunder Sen, his grandfather, [59](#Page_59).
+-   Kīnas, or Chinese, [151](#Page_151).
+-   Koran, oaths on, [70](#Page_70).
+-   Krumu, [185](#Page_185).
+-   Kshatriyas, [232](#Page_232).
+-   Ktesias, on the justice of the Indians, [72](#Page_72).
+-   Ktisis, [223](#Page_223).
+-   Kubhā, [185](#Page_185).
+-   Kullavagga, quotation from the, [96](#Page_96).
+-   Kuenen, Professor, on worship of Yahweh, [272](#Page_272).
+
+-   **L.**
+-   Ladak, [192](#Page_192).
+-   Lakshmana, [86](#Page_86).
+-   Lares familiares in Rome, [240](#Page_240).
+-   Lassen, [151](#Page_151).
+-   Law books of India, [30](#Page_30).
+-   Life, Indian and European views of, [121](#Page_121);
+  -   beautiful sentiments of, from Hindu writings, [124](#Page_124);
+  -   a journey, [120](#Page_120).
+-   Law of Nature, [263](#Page_263).
+-   Laws of Manu, [111](#Page_111).
+-   Liberal, The, Keshub Chunder Sen's organ, [99](#Page_99).
+-   Liberal education, the elements of, [38](#Page_38).
+-   Lightning, son of Parganya, [205](#Page_205).
+-   Literature, written, [224](#Page_224).
+-   Lituania, [209](#Page_209);
+  -   its language, [209](#Page_209);
+  -   its god of rain, [210](#Page_210);
+  -   prayer to the same, [211](#Page_211).
+-   Logographi, [223](#Page_223).
+-   Lost Tribes, The, of Israel, [159](#Page_159).
+-   Ludlow on village schools in India, [80](#Page_80).
+-   Ludwig, translation of Sanskrit words, [187](#Page_187).
+-   Lunar stations, [150](#Page_150).
+-   Lunar zodiac, [147](#Page_147).
+
+-   **M.**
+-   Mahābhārata, an epic poem, speaks for the truth, [88](#Page_88);
+  -   yet recited, [99](#Page_99).
+-   Mahmud of Gazni, [72](#Page_72).\[280\]
+-   Maine, Sir Henry, [65](#Page_65).
+-   Malcolm, Sir John, on the Hindus, [55](#Page_55).
+-   Manā, A golden, [146](#Page_146).
+-   Mānavas, The laws of, on evil-doers, [93](#Page_93).
+-   Mangaia, [170](#Page_170).
+-   Manning, Judge, [173](#Page_173).
+-   Manu, his code of laws, [30](#Page_30);
+  -   their true age, [111](#Page_111);
+  -   his connection with the deluge, [155](#Page_155).
+-   Manuscripts, the first collectors of, [224](#Page_224).
+-   Māori Genesis, [173](#Page_173).
+-   Maruts, the storm-gods, [199](#Page_199).
+-   Māui, son of Ru, [171](#Page_171);
+  -   legend of, [171](#Page_171);
+  -   its origin, [173](#Page_173).
+-   Megasthenes on village life, [65](#Page_65);
+  -   on Hindu honesty, [72](#Page_72).
+-   Melanippê, [177](#Page_177).
+-   Memory, power of, [232](#Page_232).
+-   Metamorphic changes in religions, [128](#Page_128).
+-   Mill, History of India, [59](#Page_59);
+  -   estimate of Hindu character, [60](#Page_60).
+-   Mina, its weight, [125](#Page_125).
+-   Mitra, [156](#Page_156);
+  -   invoked, [215](#Page_215).
+-   Modern Sanskrit literature, [107](#Page_107).
+-   Mohammedans, their opinion of the Hindus, [75](#Page_75);
+  -   the number of sects, [76](#Page_76);
+  -   treatment of Hindus, [90](#Page_90).
+-   Monotheism in the Veda, [164](#Page_164).
+-   Morality, our, Saxon, [38](#Page_38).
+-   Moral depravity in India, [93](#Page_93).
+-   Munro, Thomas, Sir, opinion of Hindus, [61](#Page_61).
+-   Müller, Max, his teachers, [45](#Page_45);
+  -   intercourse with Hindus, [81](#Page_81);
+  -   opinion of their character, [82](#Page_82).
+
+-   **N.**
+-   Nakshatras, The twenty-seven, [148](#Page_148).
+-   Naktā and Nyx, [201](#Page_201).
+-   Nala, [110](#Page_110).
+-   Native scholars, [81](#Page_81).
+-   Nearchus, [225](#Page_225).
+-   New and Full-Moon Sacrifices, [252](#Page_252).
+-   New Testament, Revised Edition, [141](#Page_141).
+-   Newspapers, Sanskrit, [98](#Page_98).
+-   Nine gems or classics, [115](#Page_115).
+-   Northern conquerors, [106](#Page_106).
+-   Numerals in Sanskrit, [46](#Page_46).
+
+-   **O.**
+-   Oath, Taking an, in village communities, [68](#Page_68);
+  -   its understanding by the Hindus, [69](#Page_69);
+  -   fear of punishment connected with, [70](#Page_70).
+-   Old Testament, [140](#Page_140).
+-   Ophir, [28](#Page_28).
+-   Orange River, [188](#Page_188).
+-   Oriental scholars, names and work hardly known, [22](#Page_22).
+-   Orissa, [96](#Page_96).
+-   Orme, [60](#Page_60).
+-   Orpheus and Ribhu, [201](#Page_201).
+-   Ôs, ôris, [44](#Page_44).
+-   Oude, [189](#Page_189).
+-   Ouranos, [213](#Page_213).
+
+-   **P.**
+-   Pahlavi, translation of the Pañkatantra into, [115](#Page_115).
+-   Palestine, [33](#Page_33).
+-   Pāli dialect, [107](#Page_107).
+-   Pandits, [57](#Page_57);
+  -   Professor Wilson on the, [58](#Page_58).
+-   Panini, [230](#Page_230).
+-   Pañkatantra, [114](#Page_114).
+-   Papyros, [224](#Page_224).
+-   Parganya, [202](#Page_202);
+  -   hymn to, [205](#Page_205);
+  -   derivation of name, [207](#Page_207).
+-   Pārvana Srāddha, [260](#Page_260).
+-   Periegesis, [223](#Page_223).
+-   Periodos, [223](#Page_223).
+-   Periplus, or circumnavigations, [222](#Page_222).
+-   Perjury, common in India, [71](#Page_71).
+-   Pérkons, thunder, [210](#Page_210).
+-   Perkuna, [212](#Page_212).
+-   Perkunas, Lituanian god of thunder, [210](#Page_210).
+-   Perkuno, [212](#Page_212).
+-   Persians, what we owe to, [36](#Page_36).
+-   Petersburgh Dictionary, [183](#Page_183).
+-   Phœnicians, what we owe to, [36](#Page_36);
+  -   their letters, [222](#Page_222).
+-   Pinda-pitriyagña, [251](#Page_251).
+-   Pipal tree, [50](#Page_50).
+-   Pitris, the fathers, [239](#Page_239);
+  -   invoked, [241](#Page_241).
+-   Pitriyagña-sacrifices, [248](#Page_248).
+-   Plato, [142](#Page_142).
+-   Pliny, Indian rivers known to, [191](#Page_191).
+-   Political communities, [31](#Page_31).
+-   Polytheism, the kind of, in the Veda, [165](#Page_165).
+-   Positivist sentiments of a Brāhman, [87](#Page_87).
+-   Primitive man, [133](#Page_133).
+-   Prayers for rain, [205](#Page_205);
+  -   for the dead, [262](#Page_262).
+-   Prometheus and Pramantha, [195](#Page_195).
+-   Proto-aryan language, [43](#Page_43).
+-   Ptolemy, [36](#Page_36).
+-   Pumice-stone, [171](#Page_171).
+-   Punjab, the, rivers of the, [183](#Page_183).
+-   Purānas, [162](#Page_162).
+
+-   **R.**
+-   Raghu, [86](#Page_86).
+-   Rajendralāl Mitra, on sacrifices, [251](#Page_251).
+-   Rāma, on truth, [87](#Page_87).
+-   Rāma Bāvā, the anchorite, [271](#Page_271).
+-   Rāmāyana, the plot of, [86](#Page_86);
+  -   yet recited, [99](#Page_99).
+-   Rawlinson, Sir Henry, [158](#Page_158).
+-   Readers not numerous in ancient or modern times, [141](#Page_141).
+-   Recitation of the old epics in India, [99](#Page_99).
+-   Religion, its home in India, [31](#Page_31);
+  -   our debt to Oriental religions, [36](#Page_36);\[281\]
+  -   its transcendent character, [126](#Page_126);
+  -   metamorphic changes in, [128](#Page_128);
+  -   began in trust, not in fear, [197](#Page_197).
+-   Rémusat on the Goths, [104](#Page_104).
+-   Renaissance period in India, [110](#Page_110).
+-   Revival of religion in India, [270](#Page_270).
+-   Ribhu and Orpheus, [201](#Page_201).
+-   Rig-Veda, editions of, now publishing, [98](#Page_98);
+  -   known by heart, [99](#Page_99);
+  -   a treasure to the anthropologist, [134](#Page_134);
+  -   character of its poems, [143](#Page_143);
+  -   its religion primitive, [144](#Page_144);
+  -   compliment to the author for his edition of, [163](#Page_163);
+  -   the number of hymns in, [163](#Page_163);
+  -   age of the oldest manuscripts, [221](#Page_221);
+  -   total number of words in, [228](#Page_228);
+  -   how transmitted, [231](#Page_231).
+-   Ringold, Duke of Lituania, [209](#Page_209).
+-   Rishis, The Vedic, [168](#Page_168);
+  -   question of earth's origin, [180](#Page_180);
+  -   their intoxicating beverage, [243](#Page_243).
+-   Rita, the third Beyond, [263](#Page_263).
+-   Rivers, as deities, [182](#Page_182);
+  -   hymn to, [183](#Page_183);
+  -   names of, in India, [185](#Page_185).
+-   River systems of Upper India, [188](#Page_188).
+-   Robertson's Historical Disquisitions, [60](#Page_60).
+-   Ru, the sky-supporter, [170](#Page_170);
+  -   his bones, [171](#Page_171);
+  -   why pumice-stone, [173](#Page_173).
+-   Rückert's Weisheit der Brahmanen, [22](#Page_22).
+-   Rudra, the howler, [199](#Page_199).
+
+-   **S.**
+-   S, pronounced as h, in Iranic languages, [189](#Page_189).
+-   Sacrifices, priestly, [148](#Page_148);
+  -   daily and monthly, [248](#Page_248).
+-   Sakas, invasion of the, [104](#Page_104).
+-   Sakuntalā, her appeal to conscience, [90](#Page_90).
+-   Sanskrit language, its study differently appreciated, [21](#Page_21);
+  -   use of studying, [23](#Page_23);
+  -   its supreme importance, [39](#Page_39);
+  -   its antiquity, [40](#Page_40);
+  -   its family relations, [40](#Page_40);
+  -   its study ridiculed, [45](#Page_45);
+  -   its linguistic influence, [46](#Page_46);
+  -   its moral influence, [47](#Page_47);
+  -   a dead language, [96](#Page_96);
+  -   early dialects of, [96](#Page_96);
+  -   still influential, [97](#Page_97);
+  -   scholars' use of, [98](#Page_98);
+  -   journals in, [96](#Page_96);
+  -   all living languages in India draw their life from, [100](#Page_100).
+-   Sanskrit literature, human interest of, [95](#Page_95);
+  -   the literature of India, [99](#Page_99);
+  -   manuscripts existing, [102](#Page_102);
+  -   divisions of, [104](#Page_104);
+  -   character of the ancient and the modern, [107](#Page_107);
+  -   known in Persia, [113](#Page_113);
+  -   a new start in, [115](#Page_115);
+  -   its study very profitable, [275](#Page_275).
+-   Satapatha Brāhmana, [91](#Page_91).
+-   Schopenhauer, on the Upanishads, [273](#Page_273).
+-   Seasons, how regulated, [148](#Page_148).
+-   Self-knowledge, the highest goal of the Veda, [125](#Page_125).
+-   Sindhu, the Indus river, [183](#Page_183);
+  -   address to, [184](#Page_184);
+  -   meaning of, [189](#Page_189).
+-   Sleeman, Colonel, his rambles and recollections, [60](#Page_60);
+  -   his life in village communities, [63](#Page_63);
+  -   his opinion of Hindus, [67](#Page_67).
+-   Solar myths, [216](#Page_216).
+-   Solomon's judgment compared, [29](#Page_29).
+-   Spencer, Herbert, on ancestor worship, [239](#Page_239);
+  -   his misstatement corrected, [240](#Page_240).
+-   Srāddhas, or Love Feasts, [248](#Page_248);
+  -   to the departed, [254](#Page_254);
+  -   their source, [257](#Page_257);
+  -   their number, [258](#Page_258);
+  -   striking resemblance, [261](#Page_261).
+-   Sudās, [200](#Page_200).
+-   Sun, the central thought in Aryan mythology, [216](#Page_216).
+-   Sūrya, god of the sun, [168](#Page_168).
+
+-   **T.**
+-   Tamil, [95](#Page_95).
+-   Tane-Mahuta, forest-god, [174](#Page_174).
+-   Tārās, the stars, [151](#Page_151).
+-   Terrestrial gods, [169](#Page_169).
+-   Teutonic mythology, [166](#Page_166).
+-   Theogony, [235](#Page_235).
+-   Thôrr, [166](#Page_166).
+-   Three beyonds, [220](#Page_220).
+-   Thsin dynasty, [152](#Page_152).
+-   Thugs, [63](#Page_63).
+-   Tortoise, the story of the, [154](#Page_154).
+-   Towers of Silence, [22](#Page_22).
+-   Towns, names of, in India, [189](#Page_189).
+-   Troy, siege of, [172](#Page_172).
+-   Truth, root meaning in Sanskrit, [82](#Page_82).
+-   Truthfulness, a luxury, [91](#Page_91).
+-   Turanian invasion, [104](#Page_104).
+-   Two women and child, story of, [29](#Page_29).
+-   Tŷr and Tin, [213](#Page_213).
+
+-   **U.**
+-   Ugvis, Lithuanian, [41](#Page_41).
+-   Universities, the object of their teaching, [19](#Page_19).
+-   Untruthfulness of the Hindus, [53](#Page_53).
+-   Upanishads, [267](#Page_267);
+  -   their beauty, [273](#Page_273).
+-   Uranos and Varuna, [201](#Page_201).
+-   Urvasi, [110](#Page_110).
+-   Ushas and Eos, [202](#Page_202).
+-   Uttarapaksha, [136](#Page_136).
+
+-   **V.**
+-   Vaga, [183](#Page_183);
+  -   as plural, [184](#Page_184).
+-   Vaisvadeva, offering, [249](#Page_249).
+-   Vaisya, a, [162](#Page_162).
+-   Vak, wife of Vata, [165](#Page_165).
+-   Vālmīki, the poet, [100](#Page_100).
+-   Varāhamihara, [112](#Page_112).
+-   Varuna, [156](#Page_156);
+  -   hymns to, [204](#Page_204).
+-   Vasishtha, on righteousness, [93](#Page_93).
+-   Vata, the wind, [200](#Page_200);
+  -   and Wotan, [201](#Page_201).
+-   Veda, their antiquity, [101](#Page_101);
+  -   silly conceptions, [118](#Page_118);
+  -   religion of, [129](#Page_129);
+  -   necessary to the study of man, [133](#Page_133);\[282\]
+  -   objections to, [135](#Page_135);
+  -   native character of, [159](#Page_159);
+  -   lessons of, [161](#Page_161);
+  -   use of their study, [162](#Page_162);
+  -   character of their poetry, [182](#Page_182);
+  -   knowledge of God progressive in, [194](#Page_194);
+  -   their hymns, a specimen, [205](#Page_205);
+  -   their gods, number of, [219](#Page_219);
+  -   meaning of their names, [220](#Page_220);
+  -   three periods in their literature, [234](#Page_234);
+  -   three religions in, [236](#Page_236).
+-   Vedic Mythology, its influence, [27](#Page_27);
+  -   contrasts, [169](#Page_169).
+-   Veda-end, [267](#Page_267).
+-   Vedānta philosophy, [265](#Page_265);
+  -   the present religion in India, [269](#Page_269);
+  -   its prevalence, [270](#Page_270);
+  -   commended to students, [271](#Page_271);
+  -   its highest knowledge, [273](#Page_273).
+-   Vidāla, cat, [42](#Page_42).
+-   Vihāras, or colleges, the ancient, [26](#Page_26).
+-   Vikramāditya, [110](#Page_110);
+  -   his varied experience, [113](#Page_113).
+-   Village communities in India, [64](#Page_64);
+  -   large number of, [65](#Page_65);
+  -   morality in, [67](#Page_67).
+-   Visvakarman, [157](#Page_157).
+-   Vyāsa, the poet, [100](#Page_100).
+
+-   **W.**
+-   Warriors, native and foreign, [116](#Page_116).
+-   Waters, divers gods of the, [167](#Page_167).
+-   Weasel and the woman, [28](#Page_28).
+-   Wilson, Prof., on the Hindus, [57](#Page_57).
+-   Witnesses, three classes of, [69](#Page_69).
+-   Wolf, F. A., his questions, [221](#Page_221);
+  -   his dictum, [223](#Page_223).
+-   Workingmen, [116](#Page_116).
+-   Worship of the dead, [240](#Page_240).
+-   Wotan and Vata, [201](#Page_201).
+-   Writing unknown in ancient India, [226](#Page_226).
+
+-   **X.**
+-   Xanthos, the Lydian, [223](#Page_223).
+
+-   **Y.**
+-   Yag, ishta, [208](#Page_208).
+-   Yagñadattabadha, [110](#Page_110).
+-   Yāgñavalkya, on virtue, [92](#Page_92).
+-   Yahweh, worship of, [272](#Page_272).
+-   Yama, lord of the departed, [85](#Page_85);
+  -   on immortality, [86](#Page_86);
+  -   invoked, [242](#Page_242);
+  -   as the first man, [242](#Page_242);
+  -   dialogue on death, [267](#Page_267).
+-   Yāska, division of the Vedic gods, [168](#Page_168).
+-   Yueh-chi, The, and the Goths, [104](#Page_104).
+
+-   **Z.**
+-   Zeus, [129](#Page_129);
+  -   the survivor of Dyaus, [213](#Page_213);
+  -   the interval between, [235](#Page_235).
+-   Zeus, Dyaus, and Jupiter, [198](#Page_198).
+-   Zimmer, Prof., on polytheism, [166](#Page_166);
+  -   translation of Sanskrit words, [185](#Page_185).
+-   Zodiacal signs, known to Sanskrit astronomers, [114](#Page_114).
+-   Zodiac, The Babylonian, [147](#Page_147).
+-   Zoroastrianism, [31](#Page_31).
+
+
+\[283\]
