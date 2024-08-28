@@ -265,15 +265,17 @@ I selected this hymn for two reasons. First, because it shows us the widest geog
 
 [^173]: Χαἱρε θεῶν μἡτηρ, ἄλοχ' Οὺρανοῦ ἁστερὁεντος .
 
-[^174]: Euripides, Chrysippus, fragm. 6 (edit. Didot, p. 824):
+[^174]: 
 
-Γαῖα μεγἱστη καὶ Διὸς αὶθἡρ,  
-ό μὲν ὰνθρὡπων καὶ θεῶν γενἑτωρ,  
-ἡ δ' ὑγροβόλους σταγόνας νοτἱους  
-παραδεξαμἑνη τἱκτει θνατοὑς,  
-τἱκτει δὲ βορὰν, φῦλἁ τε θηρῶν,  
-ὁθεν οὺκ ἁδἱκως  
-μἡτηρ πἁντων νενόμισται.  
+    Euripides, Chrysippus, fragm. 6 (edit. Didot, p. 824):
+    
+    Γαῖα μεγἱστη καὶ Διὸς αὶθἡρ,  
+    ό μὲν ὰνθρὡπων καὶ θεῶν γενἑτωρ,  
+    ἡ δ' ὑγροβόλους σταγόνας νοτἱους  
+    παραδεξαμἑνη τἱκτει θνατοὑς,  
+    τἱκτει δὲ βορὰν, φῦλἁ τε θηρῶν,  
+    ὁθεν οὺκ ἁδἱκως  
+    μἡτηρ πἁντων νενόμισται.  
 
 [^175]: Dionysius Halic., vol. v. p. 355; Muir, v. p. 27.
 
@@ -319,15 +321,17 @@ I selected this hymn for two reasons. First, because it shows us the widest geog
 
 [^196]: Vivasvat is a name of the sun, and the seat or home of Vivasvat can hardly be anything but the earth, as the home of the sun, or, in a more special sense, the place where a sacrifice is offered.
 
-[^197]: I formerly translated yát vãjān abhí ádravaḥ tvám by "when thou rannest for the prizes." Grassman had translated similarly, "When thou, O Sindhu, rannest to the prize of the battle," while Ludwig wrote, "When thou, O Sindhu, wast flowing on to greater powers." Vāja, connected with vegeo, vigeo, vigil, wacker (see Curtius, Grundzüge, No. 159), is one of the many difficult words in the Veda the general meaning of which may be guessed, but in many places cannot yet be determined with certainty. Vāja occurs very frequently, both in the singular and the plural, and some of its meanings are clear enough. The Petersburg Dictionary gives the following list of them—swiftness, race, prize of race, gain, treasure, race-horse, etc. Here we perceive at once the difficulty of tracing all these meanings back to a common source, though it might be possible to begin with the meanings of strength, strife, contest, race, whether friendly or warlike, then to proceed to what is won in a race or in war, viz. booty, treasure, and lastly to take vāgāḥ in the more general sense of acquisitions, goods, even goods bestowed as gifts. We have a similar transition of meaning in the Greek ἁθλος, contest, contest for a prize, and ἁθλον, the prize of contest, reward, gift, while in the plural τἁ ἁθλα stands again for contest, or even the place of combat. The Vedic vājambhara may in fact be rendered by ἁθλοφὑρος, vājasāti by ἁθλοσὑνη.
+[^197]: 
 
-The transition from fight to prize is seen in passages such as:
-
-Rig-Veda VI. 45, 12, vãjān indra śravãyyān tváyā jeshna hitám dhánam, "May we with thy help, O Indra, win the glorious fights, the offered prize" (cf. ἁθλοθἑτης).
-
-Rig-Veda VIII. 19, 18, té it vãjebhiḥ jigyuḥ mahát dhánam, "They won great-wealth by battles."
-
-What we want for a proper understanding of our verse, are passages where we have, as here, a movement toward vājas in the plural. Such passages are few; for instance: X. 53, 8, átra jahāma yé ásan áśevāh śivãn vayám út tarema abhí vājān, "Let us leave here those who were unlucky (the dead), and let us get up to lucky toils." No more is probably meant here when the Sindhu is said to run toward her vājas, that is, her struggles, her fights, her race across the mountains with the other rivers.
+    I formerly translated yát vãjān abhí ádravaḥ tvám by "when thou rannest for the prizes." Grassman had translated similarly, "When thou, O Sindhu, rannest to the prize of the battle," while Ludwig wrote, "When thou, O Sindhu, wast flowing on to greater powers." Vāja, connected with vegeo, vigeo, vigil, wacker (see Curtius, Grundzüge, No. 159), is one of the many difficult words in the Veda the general meaning of which may be guessed, but in many places cannot yet be determined with certainty. Vāja occurs very frequently, both in the singular and the plural, and some of its meanings are clear enough. The Petersburg Dictionary gives the following list of them—swiftness, race, prize of race, gain, treasure, race-horse, etc. Here we perceive at once the difficulty of tracing all these meanings back to a common source, though it might be possible to begin with the meanings of strength, strife, contest, race, whether friendly or warlike, then to proceed to what is won in a race or in war, viz. booty, treasure, and lastly to take vāgāḥ in the more general sense of acquisitions, goods, even goods bestowed as gifts. We have a similar transition of meaning in the Greek ἁθλος, contest, contest for a prize, and ἁθλον, the prize of contest, reward, gift, while in the plural τἁ ἁθλα stands again for contest, or even the place of combat. The Vedic vājambhara may in fact be rendered by ἁθλοφὑρος, vājasāti by ἁθλοσὑνη.
+    
+    The transition from fight to prize is seen in passages such as:
+    
+    Rig-Veda VI. 45, 12, vãjān indra śravãyyān tváyā jeshna hitám dhánam, "May we with thy help, O Indra, win the glorious fights, the offered prize" (cf. ἁθλοθἑτης).
+    
+    Rig-Veda VIII. 19, 18, té it vãjebhiḥ jigyuḥ mahát dhánam, "They won great-wealth by battles."
+    
+    What we want for a proper understanding of our verse, are passages where we have, as here, a movement toward vājas in the plural. Such passages are few; for instance: X. 53, 8, átra jahāma yé ásan áśevāh śivãn vayám út tarema abhí vājān, "Let us leave here those who were unlucky (the dead), and let us get up to lucky toils." No more is probably meant here when the Sindhu is said to run toward her vājas, that is, her struggles, her fights, her race across the mountains with the other rivers.
 
 [^198]: On śushma, strength, see Rig-Veda, translation, vol. i. p. 105. We find śubhrám śūshmam II. 11, 4; and iyarti with śūshmam IV. 17, 12.
 
