@@ -11,7 +11,7 @@ In Britain, which was his adopted country and where he spent all his working lif
 
 
 
-2 SCHOLAR EXTRAORDINARY 
+[[2]]
 
 cultural propaganda though he was interested only in presenting the rediscovered ancient India, and not Germany, to modern Indians His contemporary position has now to be set against the current eclipse His prestige was as impressive in its geographical range, extending from the Umted States to Japan, as it was by its recognition by all social classes from royalty to common people Witness the reaction to the news of his death He died at half-past eleven in the mor ning of Sunday, October 28, 1900 Immediately, messages of condolence began to pour in to his home at Oxford from all over the world, sent by emperors and kings as well as persons of less exalted worldly status One of the first to come was that from Queen Victoria, herself to die in less than three months She wrote to Mrs Max Muller ‘It is with the truest concern that I learn that your dear and excellent husband passed away today ’ There were also telegrams from her son, the future Edward VII, her daughters, the Empress Frederick and Princess Christian, her grandson, Kaiser William II , and many more royal personages The most touching and intimate among these came from the Queen of Rumania, a German princess by birth and better known under her pen name of Carmen Sylva. She wrote 
 
@@ -52,7 +52,7 @@ For in that bygone age even the grammatical knowledge of a dead language was the
 
 
 
-4 SCHOLAR EXTRAORDINARY 
+[[4]]
 
 Max Muller I heard with great regret of the serious illness of your husband and am anxious to hear how he is and hoping he is better V R I [Victoria, Regina Imperatrix], Balmoral ? The next telegram was also from her, and the third ran 'Much grieved to hear how seriously ill your husband is Trust you are able to give me better accounts Albert Edward [Prince of Wales and the future Edward VII] 9 There were many more from royal and other personages But I consider a letter about this illness from an ordinary middleclass Hindu in Madras to be the most significant He wrote 
 
@@ -82,7 +82,7 @@ This leads me to Max Muller’s position and influence in the West. It could be 
 
 
 
-6 SCHOLAR EXTRAORDINARY 
+[[6]]
 
 world, be in personal communication with front-rank scholars in many lines, and also that he would receive attention from men and women interested in things of the mind But his influence overflowed into very much wider areas, and indeed they ramified beyond the field of scholarship into the sphere of public affairs, and beyond that even, as in India, into the interests of common people Among his friends, acquaintances, or correspondents in England alone were literary figures like Macaulay, Tennyson, Thackeray, Ruskm, Browning, Matthew Arnold, and political figures like Gladstone, the Duke of Argyll, Lord Northbrooke, Lord Granville, Lord Stratford de Radcliffe, the Marquis of Salisbury, Lord Curzon, and among ecclesiastical personalities there was, to mention only one name, Archbishop Tait This list wholly ignores the wide circles of his friends and acquaintances in Europe and America 
 
@@ -112,7 +112,7 @@ I cannot claim [he further observed], to have been a man of action in the sense 
 
 
 
-8 SCHOLAR EXTRAORDINARY 
+[[8]]
 
 did much the same, and they are not considered to have been useless men, though they did not make bricks, or fight battles like Jehu But the poor Stubengelehrter has not even that comfort I felt satisfied when my work led me to a new discovery, whether it was the discovery of a new continent of thought, or of the smallest desert island in the vast ocean of truth ’ 
 
@@ -142,7 +142,7 @@ I have considered it in connexion with the life of European scholar-thinkers, an
 
 
 
-10 SCHOLAR EXTRAORDINARY 
+[[10]]
 
 Max Muller put forward his ideas as explanations of some of the deepest facts of life — religion, mythology, language Neither he nor anybody else has been able to say the final word on any of these But at all events, his theories, provisional as they were bound to be, touched on universal and timeless interests The question is whether these have that amount of relative or absolute value which makes any life-long pursuit of them worthwhile 
 

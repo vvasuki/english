@@ -16,7 +16,7 @@ You certainly have grown older and more serious — no wonder, considering what 
 
 
 
-266 SCHOLAR EXTRAORDINARY 
+[[266]]
 
 What suffering Max Muller inflicted on himself by falling in love at first sight has already been described But when at last he got married he could have been expected to live happily ever afterwards He could not and did not, however, for love brings the idea of death ever near to life, and even when it is not expected it seems to lie in ambush everywhere 
 
@@ -30,7 +30,7 @@ This terrible calamity of living on, crippled by death, befell Max Muller when h
 
 
 
-LIFE, LOVE AND DEATH 267 
+LIFE,[[267]]
 
 However, he was familiar with the idea of death from his childhood on account of the early death of his father After that he also saw many relatives die, and on many occasions recorded his thoughts and feelings about death More intimately the idea of death came home to him when a year after his marriage his wife lay very near to death for some days after the birth of her first child On December 20 the child was born, and for two days the doctors were without any hope of saving the mother Even before this she was very unwell, causing Muller very great anxiety So on December 10 he wrote to Miss Grenfell Tf anything should happen to her now, our Christmas will be a very sad time ? I try to keep up my spirits, but it is hard work yet I feel that suffering with her is worth more than all the happiness of the world with others I pray to God that it may all pass over, but if it must be, we both feel that it is meant as a wholesome trial, and that we must thank God for what He gives and what He takes from us \* 
 
@@ -52,7 +52,7 @@ be done\*.
 
 
 
-268 SCHOLAR EXTRAORDINARY 
+[[268]]
 
 Whenever Max Muller heard of the death of someone who was a friend or relative, and more especially when parents lost a child, he tried, in offering his consolation, to understand or rather come to terms with death But he could only fall back on faith So, when he heard of the death of his sister Auguste’s little son, who was his godson, he wrote to his mother 
 
@@ -107,7 +107,7 @@ Again, learning of the death of Dickens, he wrote\* ‘Poor Charles Dickens 1 It
 
 
 
-LIFE, LOVE AND DEATH 271 
+LIFE,[[271]]
 
 vulgarity of soul as among that good society with, its insolence of wealth and pnde of millinery ’ 
 
@@ -119,7 +119,7 @@ When children came Max Muller’s happiness brimmed over There were three daught
 
 
 
-272 SCHOLAR EXTRAORDINARY 
+[[272]]
 
 Of course, to all responsible and affectionate parents children are a constant trial, but the really important thing in the parent-child relationship is the question whether under these eddies of anxiety and even irritation there runs a deep current of happiness In Max Muller's case there could be no doubt about that After his death a companion of his daughters, who was then Mrs Boas, wrote a description of Muller as a father 'The memory I have of him will always be chiefly that of the loving father of our dear child-friends, Ada, Mary, and Beatrice No doubt you will have quite forgotten the way in which he would join, with bright unfeigned sympathy, m our plays and projects on the happy Saturday half-holiday afternoons we spent together, but we — the children — will never forget it ’ 
 
@@ -150,7 +150,7 @@ The loss of his daughter completely broke Max Muller, and made him incapable of 
 
 
 
-274 SCHOLAR EXTRAORDINARY 
+[[274]]
 
 ceased to be our home, though it was such a happy home — one feels now, it is a mere waiting room where one is hustled about 9 This leitmotive recurs in successive letters Some may be quoted January 8, 1878 T hope I shall have a little rest now — I cannot do without it — it is only when I am alone, and can be together with our darling child that I feel able to endure this life, and can go on with my work 9 August 23, 1878 Tt is strange being here alone — I feel as if I had no business to be here at all — I only live for you and with you My own life seems finished here on earth I have had that feeling ever since our darling left us — I ought to have gone first, not she. 9 He wrote this from Whitby, where he had gone to have a change January 13, 1879 T find it so hard to be idle, still harder to smile and look happy, and talk about everything except what is in one’s heart When I saw all the children together, I looked for one face only which was not there You know what it is I can bear it all when I am alone 9 April 20, 1879 ^ sometimes think I can go on no longer — what should I not give for my quiet study! I begin to feel the wear and tear of life much more than formerly — everything is a real effort — one can just do it and that is all 9 Again as late as December 14, 1881, on the eve of the fifth anniversary of his daughter’s death ‘My darling Georgie — If you were here, what could one say — it is always the same weight that crushes all thoughts and all words Ever since our dear Ada was taken from us, this life has become a mere waiting — one goes on as if it were the same as before, but one always feels it is not part of oneself is no longer here — and what is here, can only be for a short time Let us work on and love on to the last, as our own dear Ada did — happy child — that is what I always say when I think of her 9 It must have been a sore trial for Mrs Max Muller, strongminded woman that she was, to see her husband in this state of mind for the rest of his life I am not surprised that in her biography she did not give any description of it, and embodied her comment m just one sentence But without disclosing his state of mind there can be no full understanding of Max Muller’s personality Another decisive effect on Max Muller of his daughter’s death was his persistent distrust of happiness His third daughter Beatrice was happily married to Thomas Colyer-Fergusson, and had two children After staying with them in their house, Ightham Mote, m 1893 he wrote to his son 'They all seem so happy here that one trembles 9 A year later he made the same kind of observation to his 
 
@@ -175,7 +175,7 @@ The whole country [he continued by way of illustrating the difference] rings wit
 
 
 
-276 SCHOLAR EXTRAORDINARY 
+[[276]]
 
 instincts of those whom he addressed, and excited Now, other statesmen, however discouraging their experience of men may be, have not lost all faith in true nobility Gladstone has that redeeming feature in him that he believes in ideals, in duty, in unselfishness, in generosity I know he has not always been true to himself, but he has tried, and those who look at history as it passes before their eyes have again and again seen him struggling to be true to his better self To see this keeps a belief in morality alive among the people, but to watch a career like D’s, destroys all faith in public virtue I know nothing against D’s private life, and it speaks well for him that he had had so many private friends But a man may have too many friends Woe to you, if all the world speaks well of you 1 G Smith once wrote of him that he was a valet in the guise of a statesman — hard words, no doubt, but do they not express some truth ? 
 
@@ -189,7 +189,7 @@ Young as you are [he wrote] you have felt what it is to have one whom we love de
 
 
 
-LIFE, LOVE AND DEATH 277 
+LIFE,[[277]]
 
 whom we love on earth, till we meet again as God's love and wisdom may order it Think always what those whom you loved and who loved you on earth, would think of you, and then you will never never go far wrong 
 
@@ -203,7 +203,7 @@ Feb 17 I often thought, my dear Child, how painful it would be if at any time yo
 
 
 
-278 SCHOLAR EXTRAORDINARY 
+[[278]]
 
 same There is a difference between the childlike faith of a man (all real faith must be childlike) and the childlike faith of a child The one is Paradise not yet lost, the other Paradise lost but regained The one is right for the child, and the other is right for the man It is the will of God that it should be so — but it is also the will of God that we shall all bear with each other, and join, each in his own voice, in the great hymn of praise 
 
@@ -254,7 +254,7 @@ Thus have I fulfilled something of what I felt I ought to do for you when you we
 
 
 
-280 SCHOLAR EXTRAORDINARY 
+[[280]]
 
 July 1 8, 1878 One is driven along day after day — but now and then there comes a sudden lull, sometimes for a few minutes only, but in those few minutes Oh what a world of sadness and bitterness One asks no longer Why — one knows there is no answer to that It is so, and as it is, it must be borne 
 
@@ -297,7 +297,7 @@ My dear Mother — my earliest recollection, my first love — my constant thoug
 
 
 
-282 SCHOLAR EXTRAORDINARY 
+[[282]]
 
 To his living daughters he wrote immediately To his youngest daughter Beatrice he wrote 
 
@@ -315,7 +315,7 @@ This did honour to the undergraduates of Oxford, who showed that though they cou
 
 
 
-LIFE, LOVE AND DEATH 283 
+LIFE,[[283]]
 
 could also rise to an abandoned admiration of a more spiritual physical attraction 
 
@@ -331,7 +331,7 @@ I could see all the time that she considered the dress you worked for her too sh
 
 
 
-284 SCHOLAR EXTRAORDINARY 
+[[284]]
 
 Three years later it was the turn of the daughter to be remonstrated with On May 5, 1882, he wrote to Mary. 
 

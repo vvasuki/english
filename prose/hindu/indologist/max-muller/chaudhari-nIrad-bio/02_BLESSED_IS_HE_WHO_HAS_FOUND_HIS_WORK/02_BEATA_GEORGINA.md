@@ -12,7 +12,7 @@ In her biography of her husband Mrs Max Muller was naturally very reserved about
 
 
 
-148 SCHOLAR EXTRAORDINARY 
+[[148]]
 
 of suffering It is a story of romantic love without a ray of hope, until it ended suddenly and unexpectedly in happiness 
 
@@ -38,7 +38,7 @@ The Protestant rehabilitation of marriage was a revolt against the Catholic Chur
 
 
 
-150 SCHOLAR EXTRAORDINARY 
+[[150]]
 
 him Kmgsley had found peace and had been able to reconcile the world and the spirit through his love for and marriage with Fanny Grenfell, and he revolted against the Catholic view which made such a pure bliss (derived as he thought from God) a sin Mr Svaglic also draws attention to the fact that Kingsley belonged to the circle of Carlyle, Froude, Tennyson, Shaftesbury and Bunsen, and shared their Germanic Protestant view of history, one of whose particular expressions was that the Reformation had reasserted the sanctity of marriage and the family, and revived the Teutonic virtues which had been suppressed by the Roman Church Max Muller belonged to the same circle 
 
@@ -55,7 +55,7 @@ Edmund Havell
 
 
 
-BEATA GEORGINA 151 
+[[151]]
 
 Fatuous question Man and woman have it conjointly 5 With this there was bound to go a glorification of the basic element in the manwoman relationship, sexual love This Romantic view of love treated marriage as an institution largely irrelevant to love In fact, it depicted love at its most intense outside wedlock There were two natural if not good reasons for doing so first, marriage was almost wholly subject to worldly considerations in that age, and the Romantic, who thought this degrading, wanted to make love independent of the world, second, sexual satisfaction in wedlock was also the assertion of a legal right, and that made the ardent Romantic have the same feeling for it as we have foi income-tax Moreover, they had no revulsion from the physical expression of love But that was wholly different from the nonchalance about sexual intercourse of men and women of our days, who have made the act as amoral and neuro-muscular as playing tennis To the Romantics, in contrast, the physical union was the climax of a passionate union 
 
@@ -69,7 +69,7 @@ m their moralizing but not in their love-making.
 
 
 
-152 SCHOLAR EXTRAORDINARY 
+[[152]]
 
 Since the words of love which Robert spoke to Elizabeth were heard and sanctioned by God, not all the Barretts of Wimpole Street could prevent her from becoming Mrs Browning Coventry Patmore defined love in marriage more directly 
 
@@ -109,7 +109,7 @@ The new act opened in April, 1856, with a letter from Max Muller to Miss Grenfel
 
 
 
-154 SCHOLAR EXTRAORDINARY 
+[[154]]
 
 had arranged for the Ray Lodge party at Oxford for the grand celebration there of the close of the Crimean War, at which Jenny Lind was to sing at two concerts 'The arrangements/ he wrote, 'will be somewhat Crimean, I fear, yet I have no doubt that the battle will be won There is one large bedroom and two small ones, so your maid will have to sleep in a neighbouring house If I had known yesterday I could have offered a bed to Mr Grenfell in my house I have secured carriage room and stalls for two horses, and beds for two servants, and by a most fortunate accident I got a ticket for the first concert ’ Then he gave details of the programme he had arranged and this included lunches and dinners and balls at many colleges, outings, and even visits to the Observatory where they were to see the Observer’s Heliometer and the stars generally The whole visit was most gay and festive 
 
@@ -145,7 +145,7 @@ stopped all his attentions in that sudden way Somehow I am glad to
 
 
 
-156 SCHOLAR EXTRAORDINARY 
+[[156]]
 
 hear this, for tho’ I own it would have been a poor life with him and that I soon got over the feeling and that my love to Max is real and true, yet I did care for H G W very much and with all a girl’s eager feeling, and therefore I am glad to hear that he was not a mere flirt, attracted for a time by my lovely face 
 
@@ -175,7 +175,7 @@ June 8, 1856 The Sacrament today such a real help Long and deeply did I pray for
 
 
 
-158 SCHOLAR EXTRAORDINARY 
+[[158]]
 
 June 28, 1856 Thank God after three weeks of sad anxiety and earnest prayer for him I have today heard that my dear Muller is more peaceful and enjoying the idea of his mother coming Ah\* were it not for deep earnest prayer, how could one bear it ? I cannot think of his grief Such a man Why, why am I allowed to cause sorrow to such a mind 7 God keep me true to him Every day I think more of him and feel if for our good God will order it all and allow it — But if it may never be, Gh f my God teach him to forget, lay not deep sorrow on him 
 
@@ -215,7 +215,7 @@ You are one of the few men to whom I have been drawn passionately at first sight
 
 
 
-160 SCHOLAR EXTRAORDINARY 
+[[160]]
 
 deepened I should have liked any man the better for loving her but that you did so, was quite a triumph to me, because I knew that it was not [her] face merely which would attract you but that you had seen the inward spiritual grace which I had always known was there, dormant chiefly, but only waiting to be called out 
 
@@ -249,7 +249,7 @@ Like a true moralist she knows that in such situations as hers
 
 
 
-162 SCHOLAR EXTRAORDINARY 
+[[162]]
 
 what a person does always matters more than what he merely thinks So she goes on to write T would lay down a few rules for my guidance in the use of my time 5 In doing so she could not be more severe if she had been a nun 
 
@@ -283,7 +283,7 @@ Taylonan Professorship of Modern European Languages on £500 a year in which he 
 
 
 
-164 SCHOLAR EXTRAORDINARY 
+[[164]]
 
 that I am an unbeliever, that I do not believe in the Bible, that I do not believe in Christ, our Lord and Saviour, I need not fear him I have many friends who know me and know my religious convictions, and though I have always avoided theological controversy, I have never avoided to express my faith in the doctrmes of Christianity where I felt called upon to do so 
 
@@ -348,7 +348,7 @@ He kept Miss Grenfell informed about his work, his literary projects and campaig
 
 
 
-168 SCHOLAR EXTRAORDINARY 
+[[168]]
 
 So you see I am in harness again, and I shall try to make up for the three years that I wasted in despair and misery Life was then a riddle, a foolish dream — I did not know for what purpose I should live and work It is so no longer, and the burden I shall have to bear, perhaps through the whole of my life, has become light and even dear to me since I know who wishes me to carry it 
 
@@ -389,7 +389,7 @@ But it was neither Georgina’s love nor her faith which was to bring about her 
 
 
 
-170 SCHOLAR EXTRAORDINARY 
+[[170]]
 
 body which did that at last, by failing to bear the agony Some two months after she had set down her view of the tranquillizing effect of a loveless marriage, she saw Muller at a concert from a distance and fainted away Instead of feeling ashamed about this melodramatic weakness she gloried in it, and wrote in her diary as soon as she was strong enough to attend to it 
 
@@ -425,7 +425,7 @@ At 11 25 Max Muller was going to arrive at Maidenhead station. Georgina was sitt
 
 
 
-172 SCHOLAR EXTRAORDINARY 
+[[172]]
 
 m her diary ‘June n, 114am — I am waiting for my great joy God give me grace to bear it rightly ’ 
 
@@ -441,7 +441,7 @@ On this letter there is a short note in Kingsley’s hand Tor Georgie 5 And with
 
 
 
-BEATA GEORGINA 173 
+[[173]]
 
 the word — it is not mere bright happiness, but such entirely, utterly satisfied feeling This grows every day ’ 
 
@@ -459,7 +459,7 @@ How poor words seem How can they describe such joy as mine and
 
 
 
-174 SCHOLAR EXTRAORDINARY 
+[[174]]
 
 Max’s, how can they fitly express the hourly prayer, that I can truly say my grateful heart is always offering up, that we may both be God’s true servants and training together for an ever brighter higher life hereafter — ‘Thou God seest us ’ Thou dost know the thoughts, no need of our faltering words, when we approach Thee, our omniscient Father 
 
@@ -493,7 +493,7 @@ Max Muller himself had another contrast to Goethe in his mind To his mother, to 
 
 
 
-176 SCHOLAR EXTRAORDINARY 
+[[176]]
 
 The anonymity of the book was preserved for three or four editions, and then Muller came to be known as its author Bunsen was informed, and Fronde suspected the authorship 
 

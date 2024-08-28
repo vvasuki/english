@@ -33,7 +33,9 @@ Buddhist Pilgrims
 
 1862 Ancient Hindu Astronomy 
 
-1864 Lectures on the Science of Language, Vol II 1866 Hitopadesa, Text, Notes, etc 
+1864 Lectures on the Science of Language, Vol[[1866]]
+
+Hitopadesa, Text, Notes, etc 
 
 Sanskrit Grammar 
 

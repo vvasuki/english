@@ -34,7 +34,7 @@ Derisive remarks, of course, are always made about persons and institutions whic
 
 
 
-94 SCHOLAR EXTRAORDINARY 
+[[94]]
 
 strongest impulse was to admire He was overwhelmed by its grandeur, as well as the charm and sophistication of the academics As he wrote in his autobiography ‘My first years at Oxford were spent in a perfect bewilderment of joy and admiration To me it seemed a perfect paradise 9 
 
@@ -70,7 +70,7 @@ two sons of Mettermch, Baron von Huge!, and many of the best English
 
 
 
-96 SCHOLAR EXTRAORDINARY 
+[[96]]
 
 families, and a crowd of such beautiful women as I have never before seen The festivities lasted from early dawn till midnight, the gardens lighted up, with music and singing, were enchanting There were good concerts, the Messiah , the Creation , in which Birch, Tadohnee, and Lablache sang , in fact it was magnificent, and champagne and hock flowed in streams 
 
@@ -80,7 +80,7 @@ He saw other young men at these parties, in evening dress and the short gown of 
 
 
 
-EARLY YEARS AT OXFORD 97 
+[[97]]
 
 grave and learned, said, ‘Surely, you are the son of the Dorian Muller — the Muller who wrote about the Dorians, and was not John Dory the ancestor of all the Dorians There was general laughter, and Muller explained that he was not the son of Otfned Muller who had written about the Dorians, but of Wilhelm Muller who had written Die Homensche Vorschule and Die Schone Mullenn Then he perpetrated a joke as far-ranging as Thackeray’s ‘How could John Dory be their ancestor, because the original John Dory was II Janitore , that is, St Peter, who had no wife or would not acknowledge her in public, though he was kind to his mother-in-law ’ This wholly thawed Thackeray, who poured out his wit and sarcasm and told anecdote after anecdote, helping himself meanwhile to plenty of vinegar and cayenne pepper 
 
@@ -90,7 +90,7 @@ He also wrote that it never struck him then that these young men had within them
 
 
 
-98 SCHOLAR EXTRAORDINARY 
+[[98]]
 
 when they began to leave Oxford ‘My early Oxford friends, with whom I felt at home, leave one after another, and it is not worth while to make new acquaintances 5 To become indifferent to new acquaintances at the age of twenty-seven showed a considerable capacity for attachment to people 
 
@@ -124,7 +124,7 @@ But it was quite the opposite in liberal circles For about a decade by the middl
 
 
 
-100 SCHOLAR EXTRAORDINARY 
+[[100]]
 
 the advocates of reform and of liberalism in theology and philosophy were called Germamzers by their opponents, and in a sense they were Jowett, for instance, went to Germany, became familiar with Hegel’s writings which were unknown at the time at Oxford, and came back determined to conquer this new world of thought He became the pioneer in the naturalization of Hegel’s thought which became the source of English philosophical speculation at the end of the nineteenth century 
 
@@ -138,7 +138,7 @@ Another still more famous figure was one of Muller’s early Oxford friends That
 
 
 
-EARLY YEARS AT OXFORD 101 
+[[101]]
 
 time, and also that he never rose higher than an Inspector of Schools while many of his contemporaries became great political or ecclesiastical figures Arnold, however, never gave any thought to this He never asked for anything, but Max Muller thought that his friends should have done something for him to show that he had not been left behind in the worldly race Later in life, he wrote to influential friends urging public recognition for Arnold 
 
@@ -174,7 +174,7 @@ Another thing which almost shocked Muller was the disrespect of the students tow
 
 
 
-102 SCHOLAR EXTRAORDINARY 
+[[102]]
 
 as the Saturnalia of their university life, and he could even enjoy some of the remarks he heard at the beginning His first experience of this was when Dr F Plumptree, as Vice-Chancellor, stood up to address the audience in the Sheldoman His first words were not quite distinct, and the undergraduates shouted ‘Speak up, Old Stick 5 Dr Plumptree was very tall and stately 
 
@@ -186,7 +186,7 @@ Then the practise and profession of religion at Oxford baffled Muller When he ca
 
 
 
-EARLY YEARS AT OXFORD 103 
+[[103]]
 
 to Christianity with which he had become familiar in his country, there was no trace In his bewilderment, he asked both Johnson and Stanley what all these things had to do with true religion, but was advised by them to keep aloof and say nothing 
 
@@ -200,7 +200,7 @@ Muller tiled to help his friend by bringing him in contact with
 
 
 
-104 SCHOLAR EXTRAORDINARY 
+[[104]]
 
 Bunsen, who at once invited him to his house Muller thought that it would be sad if a man of Fronde’s talents was to fall into the hands of the English Radicals, Chartists and Unitarians, and he thought if Bunsen could send him to Germany in some capacity he could perhaps serve religion better in his own country by transforming the results of German theological and historical investigations into a native product But this came to nothing, and Fioude had to leave Oxford Before he did so even his friends and acquaintances avoided him Many times, when walking in the streets with Muller, he would pass a former friend who took no notice of him, and say ‘That is another cut 5 
 
@@ -212,7 +212,7 @@ He was only a sojourner at Oxford, and had no connexion with the university He d
 
 
 
-EARLY YEARS AT OXFORD 105 
+[[105]]
 
 come in his way, everything about his future was undecided and unknown However, within a month of coming to Oxford he discovered that T must find some further occupation here, for Sanskrit alone does not yield enough to live on 5 As he extended his social life, he made the further discovery that to live in Oxford society was expensive The question of a permanent career had to be considered, if not decided 
 
@@ -224,7 +224,7 @@ But this compulsion did not actually face him So what he had to consider during 
 
 
 
-106 SCHOLAR EXTRAORDINARY 
+[[106]]
 
 The revolutions in Germany have laid such hold on all circumstances of life, and have so undermined the foundations of society, that one loses all courage to build one’s future on such a soil, unless one feels the strength and power to take an active part in initiating and settling matters On the contrary, if one wishes to find one’s ideal of life in the narrow quiet circle of science, one has the right, I think, to seek shelter there where science, if not patronized and aided, is at least tolerated and left alone 
 
@@ -236,7 +236,7 @@ The next day Wilson relented a little, and Max Muller felt encouraged to toy wit
 
 
 
-EARLY YEARS AT OXFORD 107 
+[[107]]
 
 of the year, when the first volume of the Rig-Veda would be published, and spend the winter with her, he would try to find a place in a German university, preferably Bonn, and see if it would be possible to come over to England for a short period every year to look after the printing of the Rig-Veda The truth was that his judgement told him that he was likely to remain in England for many years, while his emotional preference was still for his own country He put that quite clearly to his mother ‘The longer one lives in England, the more one longs to be back in Germany A stormy sea is better than a dead sea! The English grow more like the Chinese with each year, and nature herself has built a Chinese wall round their lovely country But if one can make oneself into a Chinaman, one gets on well with them ’ 
 
@@ -248,7 +248,7 @@ But a strange thing happened on the morning of the dinner. Muller was sitting in
 
 
 
-108 SCHOLAR EXTRAORDINARY 
+[[108]]
 
 authorities wanted him to leave within twenty-four hours At that Muller told him quietly ‘Of course, I shall obey orders and leave at once, but I must request the police authorities to inform His Majesty the King that I shall not be able to dme with him tonight 5 When the officer saw that Muller was in earnest he looked thunderstruck and left with a bow Soon after a senior official arrived at Muller’s house to apologize 
 
@@ -260,7 +260,7 @@ From this it could be anticipated that Muller would again be seized with a fit o
 
 
 
-EARLY YEARS AT OXFORD 109 
+[[109]]
 
 worst time to go to Bonn Wilson advised him to remain in England or go to India 
 
@@ -272,7 +272,7 @@ In the courses of lectures which he delivered for three years in this post, Mull
 
 
 
-110 SCHOLAR EXTRAORDINARY 
+[[110]]
 
 among strangers you would understand how delightful it is to see well-known faces and well-known streets and houses round one If I had independent means, I would live in Dessau, and by choice in my grandfather’s house with the garden, where I know every tree \* The high grim busts of the Caesars on the railing of the Sheldoman must have smiled sardonically, for Oxford was soon to claim him permanently And when in late life he went to his birthplace he did not meet one man or woman whose face or name he knew, and he had to go to the old cemetery outside the town to be greeted by old names, some very dear to him and others forgotten in his zvanderjahre However, he went for a holiday to Germany in the summer of 1852, and travelled as far afield as the Tyrol But he returned to Oxford 
 
@@ -306,7 +306,7 @@ James Anthony Froude had married Charlotte Grenfell, while Charles Kingsley had 
 
 
 
-112 SCHOLAR EXTRAORDINARY 
+[[112]]
 
 Taplow and Maidenhead They had their money in banking and mining, and interests in sport The brother of Charlotte and Fanny was Riversdale Grenfell, whose motherless and beautiful daughter Georgina was brought up by her maiden aunt, the eldest Miss Grenfell The women of the family seem to have been different from the men, with stronger religious, intellectual and passionate inclinations Froude had often talked of his clever young German friend to his relatives, and Riversdale Grenfell asked him to bring Max Muller to his house, Ray Lodge, near Maidenhead, for a Saturday to Monday visit He came, and fascinated all present by his brilliant, lively conversation and exquisite music Georgina Grenfell has described his appearance as it was then ‘He was very dark, with regular features, fine bright eyes, and a beautiful countenance full of animation, and it was difficult to reconcile his youthful appearance with his already great reputation ’ 
 
@@ -333,7 +333,7 @@ He could not hold out any immediate hope for his friend, and felt unhappy T am w
 
 
 
-114 SCHOLAR EXTRAORDINARY 
+[[114]]
 
 any circumstances, and her happiness may be at stake, I do not mean now But if she sees much of you it might become so 5 The immediate obstacle, as Froude saw it, was insufficient acquaintance The girl, he said, hs only nineteen and there would be a natural desire that she should not so early in life be allowed to come to a hasty decision’ So he advised Max Muller to go on gently, to let acquaintance ripen into intimacy He spoke to his wife, and she wished that Muller would come and see her Froude strongly urged his friend to come, saying ‘It will be worth your while even for your dearest purpose, as you will be gaming acquaintance among the other members of the family 9 
 
@@ -345,7 +345,7 @@ Nothing could be more realistic and frank But Froude saw the want of money only 
 
 
 
-EARLY YEARS AT OXFORD 115 
+[[115]]
 
 rate/ Fronde observed, ‘the more they see and hear you the more good they will sec and hear the more they will be assured that even in a worldly point of view you have a clear and prosperous future before you, and I do not pietend to say that considerations of this kind will not be of weight God bless you, my dear fellow, I wish I could say more ’ 
 
@@ -357,7 +357,7 @@ All this advice and other admonitions were addressed to Muller by Froude between
 
 
 
-116 SCHOLAR EXTRAORDINARY 
+[[116]]
 
 and on February 9 he informed his friend T have written I shall get an answer on Saturday and you will perhaps therefore on Sunday learn all you desire You know my heart is with you God bless you, dear fellow, in your future whatever it is to be \* Then he gave a very curious warning, and that about his brother-in-law Charles Kingsley ‘Avoid Kingsley in this matter, Don’t breathe it to him ’ 
 
@@ -391,7 +391,7 @@ G. in Grenfell
 
 
 
-118 SCHOLAR EXTRAORDINARY 
+[[118]]
 
 The letter was long, just short of one thousand words in length It would certainly not have been expected from a Victorian old maid by anyone who had taken the anti-Victorian fripperies of writers like Lytton Strachey seriously 
 
@@ -407,7 +407,7 @@ Then he disclosed a secret about Miss Grenfell heiself, ‘Do you know,’ he wr
 
 
 
-EARLY YEARS AT OXFORD 119 
+[[119]]
 
 intercom be between you I would advise you to smother your feelings I tell you to hope gallantly ’ 
 

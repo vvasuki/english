@@ -30,7 +30,7 @@ Academic refoim at Oxford in the second half of the nineteenth entury, like parl
 
 
 
-204 SCHOLAR EXTRAORDINARY 
+[[204]]
 
 teaching, of the extension of research, were dealt with superficially and remained open even till after the First World War, when they had to be examined again 
 
@@ -44,7 +44,7 @@ With this transformation Oxford ceased to be the home of dreams and lost causes,
 
 
 
-OXFORD— DARK AND BRIGHT 205 
+OXFORD—[[205]]
 
 to the imperial greatness of Britain Gladstone, who set the reforming movement going, did not seem to be wholly satisfied with what he had sponsored, and on his deathbed he could only recall the Oxford dedicated to the glory of God which he had known in his student days Thus to a message sent to him by the Hebdomadal Council in 1898 he replied £ There is no expression of Christian sympathy that I value more than that of the ancient university of Oxford, the God-fearing and God-sustaimng university of Oxford. I served her, perhaps mistakenly, but to the best of my ability ’ But that Oxford of his was as dead as that of Newman By the end of the century Oxford had transferred its allegiance from God to Caesar. 
 
@@ -56,7 +56,7 @@ But the most baneful impact of imperialistic Oxford was seen m the Indians who c
 
 
 
-206 SCHOLAR EXTRAORDINARY 
+[[206]]
 
 ancient universities, and they buttressed their prestige there by fostering an abject worship of Oxford and Cambridge among Indians So the more ambitious and wealthy among them came over for their higher education, which was really a pursuit of career and prestige, and even with a third-class degree they could ensure both If they were clever enough they could make an aegrotat degree do as well But they also showed what a femme fatale Oxford or Cambridge could be for them 
 
@@ -74,7 +74,7 @@ At Oxford [he wrote] they find it very hard to make friends among the better cla
 
 
 
-OXFORD— DARK AND BRIGHT 207 
+OXFORD—[[207]]
 
 be expected to do, is to invite them once or twice to a breakfast party They have hardly any interests in common with them, and anything like friendship is out of the question 
 
@@ -88,7 +88,7 @@ Historically, this was exactly what happened in the second half of the nineteent
 
 
 
-206 SCHOLAR EXTRAORDINARY 
+[[206]]
 
 ancient universities, and they buttressed their prestige there by fostering an abject worship of Oxford and Cambridge among Indians So the more ambitious and wealthy among them came over for their higher education, which was really a pursuit of career and prestige, and e\en with a third-class degree they could ensure both If they were clever enough they could make an aegrotat degree do as well But they also showed what a femme fatale Oxford or Cambridge could be for them 
 
@@ -106,7 +106,7 @@ At Oxford [he wrote] they find it very hard to make friends among the better cla
 
 
 
-OXFORD— DARK AND BRIGHT 207 
+OXFORD—[[207]]
 
 be expected to do, is to invite them once or twice to a breakfast party They have hardly any interests in common with them, and anything like friendship is out of the question 
 
@@ -120,7 +120,7 @@ Historically, this was exactly what happened in the second half of the nineteent
 
 
 
-208 SCHOLAR EXTRAORDINARY 
+[[208]]
 
 bringing Indians to Oxford and Cambridge Max Muller’s prescription was to give the desired education in India by training Englishmen at Oxford to play their educational role there effectively He saw the fulfilment of British rule in India in this educational mission, which was really a task of cultural proselytization He had put forward the idea as early as 1856, in a letter written to Bunsen m which he said 'After the last annexation the territorial conquest of India ceases — what follows next is the struggle in the realm of religion and of the spirit, in which, of course, centres the interests of the nations ’ He repeated the idea in different words to the Duke of Argyll 'India has been conquered once, but India must be conquered again, and that second conquest should be a conquest by education ’ 
 
@@ -133,7 +133,7 @@ On this Muller commented . 'A society leavened by such men will make it possible
 
 
 
-OXFORD— DARK AND BRIGHT 209 
+OXFORD—[[209]]
 
 sands in soldiers and policemen, and millions in wars and suppression of rebellions \* 
 
@@ -147,7 +147,7 @@ In spite of all this an Oxford Magna did emerge out of the reforms, between whic
 
 
 
-210 SCHOLAR EXTRAORDINARY 
+[[210]]
 
 Oxfoid, Gladstone, was hounded out, but with the completion of reform the university took pride in noting the fact that in the last year of the nineteenth century there were ten Oxford men in a Cabinet presided over by its Chancellor 
 
@@ -159,7 +159,7 @@ Pattison, whose one positive passion in life was the pursuit of learning and who
 
 
 
-OXFORD— DARK AND BRIGHT 211 
+OXFORD—[[211]]
 
 Max Muller, who was associated with the reformers from the beginning but would not take any active part in the movement because he was a foreigner, very soon became disappointed with the outcome of the reforms Even in 1855 he wrote 'Oxford is in a sad condition , the reform has done nothing, and we are worse off than before Gladstone’s Bill has introduced a complicated and impractical system, which suffocates all proposals for the better . What remains therefore is nothing but the coffee-grounds which nobody desires to have — clergymen without a parish and scholars without scholarship 1 ’ 
 
@@ -175,7 +175,7 @@ Strong as this was, it was also the view of the life and aspirations
 
 
 
-212 SCHOLAR EXTRAORDINARY 
+[[212]]
 
 of the Oxford dons held by the town, which had very little respect for the gown As it happened, the university and the colleges were themsehes responsible for creating such notions They had refused to disclose the facts about their revenues to the Commission of 1850, and, as a result, speculation was rife about their hidden and hoarded wealth It was the Cleveland Commission of 1872, which, in its report published in 1874, for the first time fully revealed the extent of the wealth and properties of the university and the colleges, and show ed that they were neither as wealthy as many had supposed, nor careless as landowners But great landowners they still were, the university being the junior partner and the colleges collectively the semor The income of the two was classified under six heads (1) Lands, (2) house property, (3) tithe rent charges, (4) other rent charges, such as free farm rents and fixed charges, (5) stocks, shares, and other securities , (6) receipts from fines, tuition, minerals, etc Overwhelmingly, the money came from landed property, of which the university had 7,684 acres, and the colleges jointly 184,764 acres The total income of the university was £47,000, of wdiich £29,000 came from property The total income of the colleges was £363,000, of which £280,000 came from the same source 
 
@@ -201,7 +201,7 @@ It is curious that of the two Pattison should, in the final summingup, turn out 
 
 
 
-214 SCHOLAR EXTRAORDINARY 
+[[214]]
 
 on to the three mam interests of nineteenthcentury Englishmen, politics, money and religion, the spikenard of a refurbished Hellenism, which might be called Victorian neo-Platomsm, but which was of course very much more superficial Jowett was called ‘Master’ by men and women of fashion, and the Master he remained 
 
@@ -217,7 +217,7 @@ Jowett was the opposite He inspired affection and could also show
 
 
 
-OXFORD-DARK AND BRIGHT 215 
+OXFORD-[[215]]
 
 affection But the interchange was superficial, for he distrusted passion and always employed that word in a bad sense Therefore, over his puntamsm, which was both fierce and narrow, he succeeded in laying a coat of unctuousness, which made worldlings look up to him for moral inspiration and guidance But there was also no doubt that his moral sense was fundamentally right His intellectual capacity and moral sensitiveness were such that one could not easily perceive that he was an adventurer V ery few adventurers in the world have taken an adventurer’s life to a higher level, morally and intellectually 
 
@@ -233,7 +233,7 @@ Pattison the unsuccessful cleric 8
 
 
 
-216 SCHOLAR EXTRAORDINARY 
+[[216]]
 
 Between them they represented the new Oxford in its personal ambitions and in its consciously adopted educational role, though one gloated on success and the other almost exulted in failure There were, however, two others who kept up the spirit of old Oxford through the changing times, here again with contrasted results for themselves These men w ere Dr Pusey and Dean Liddell Pusey died fighting to the last for an Oxford in the service of religion Liddell adapted himself to the reformed Oxford very successfully, and even helped further reforms, but in spirit he remained true to old times 
 
@@ -245,7 +245,7 @@ Pusey’s excessive sense of his own sinfulness may now seem horribly unnatural,
 
 
 
-OXFORD— DARK AND BRIGHT 217 
+OXFORD—[[217]]
 
 original sin A conviction of sinfulness, however unfounded, was of the very essence of Christian faith and morality, and, as the biographers of Pusey point out, self-condemnation has come from St Augustine, St Francis of Assisi, St Vincent de Paul, John Bunyan, St Francois de Sales and John Wesley Pusey only continued that tradition It was strange that a man who was really angelic should consign himself to hell with only a slender hope that, justified by faith alone, he would be allowed to redeem himself there, whereas the two fallen angels, Pattison and Jowett, continued to strut and bask in the heaven that was Oxford But certainly Pusey’s self-torture was preferable to the moral complacence of Jowett, purred out to fashionable men and women, who saw in it a gilding of their worldly hedonism 
 
@@ -257,7 +257,7 @@ Jowett knew quite well, and he did not hesitate to say so, that to do much good 
 
 
 
-218 SCHOLAR EXTRAORDINARY 
+[[218]]
 
 a considerable piece of a rogue, having many reticences and concealments ’ Now Professor Jowett has certainly done some good work at Oxford, but if any one were to say that he also was a considerable piece of a rogue, what an outcry there would be among the sons of Balliol 
 
@@ -274,7 +274,7 @@ He was however very grateful to Oxford, and added in the same
 
 
 
-OXFORD— DARK AND BRIGHT 219 
+OXFORD—[[219]]
 
 letter that ‘here in Oxford, I must say, everything is done to make up for what has been done amiss’ 
 
@@ -286,7 +286,7 @@ It was only in 1898, two years before his death, that Muller learned from an ano
 
 
 
-220 SCHOLAR EXTRAORDINARY 
+[[220]]
 
 wife T consider Scott as a thoroughly dishonest man, and yet he is respected by many people Who knows who is right ^ 
 
@@ -317,7 +317,7 @@ Wilson died on May 8, i860, and the notice of an election to be ‘holden 5 on D
 
 
 
-222 SCHOLAR EXTRAORDINARY 
+[[222]]
 
 Pusey, Keble, Church and Stanley The supporters of Momer Williams equalled in number those of Muller, and included many Bengali pundits, but they were not so distinguished For six months and more a vigorous election campaign was carried on, with manifestoes, handbills, letters to newspapers and, above all, personal canvassing by means of letters and word of mouth Muller had his committee, and Momer Williams had two, one at Oxford and the other in London In less than a month Muller was sick of the business 
 
@@ -331,7 +331,7 @@ Of these, Muller’s was the first and was dated September 3, i860 He said that 
 
 
 
-OXFORD— DARK AND BRIGHT 223 
+OXFORD—[[223]]
 
 thought that the Boden Professor should create a school of Sanskrit Scholarship and Comparative Philology at Oxford On the basis of such a definition of the functions of the Professorship, Momer Williams was ready to concede Muller’s superior claim unreservedly But was the definition right ? Williams began by saying that before applying for the post he had taken the first step of ascertaining what the requirements were for the Professorship in the exact words of the Founder, and he declared 
 
@@ -347,7 +347,7 @@ mind, would content himself with a rapid glance.’
 
 
 
-224 SCHOLAR EXTRAORDINARY 
+[[224]]
 
 The second class of books, the philosophical texts which Momer Williams did not know as well as Max Muller, were according to Williams writings of a very abstruse and mystical nature, which very few learned natives understood, and which a missionary needed to know nothing about beyond their leading principles 
 
@@ -361,7 +361,7 @@ Members of the Convocation in votmg for a Boden Professor must not overlook thei
 
 
 
-OXFORD— DARK AND BRIGHT 225 
+OXFORD—[[225]]
 
 What then is this primary object? 
 
@@ -399,7 +399,7 @@ The Bishop of Calcutta wrote among other things that ‘it would
 
 
 
-226 SCHOLAR EXTRAORDINARY 
+[[226]]
 
 be more fitting in my opinion for a great Christian University to place in its Sanskrit Chair the scholar who has made the Sanskrit scriptures accessible to the Christian missionary’ He gave leave to Muller to use his letter in any way he considered fit After the question of the intention of the Founder, there also arose the question of the wishes of the previous holder of the Professorship, as if the principle of apostolic succession was involved in the appointment Momer Williams had no difficulty in producing decisive proof of his testamentary right With his application he submitted the following letter written by Wilson shortly before his death 
 
@@ -417,7 +417,7 @@ But on balance it appeared that Wilson was for Williams Even as far back as 1830
 
 
 
-OXFORD— DARK AND BRIGHT 227 
+OXFORD—[[227]]
 
 The campaign also made full use of personal arguments in the manner of parliamentary elections, and in respect of them Muller was an easier target than Williams He was accused of intending to hold two professorships (the Taylonan and the Boden) at the same time , of not being an Englishman , of not being able to write English well, and of being irreligious To one of these alone he pleaded guilty, ‘that of not having been born in England, and having no right to the name of an Englishman’ But he added, ‘If, however, residence and work in the University give a right to the name of Oxfordman, I may, without presumption, be thought to have acquired some claim to that title ’ All the other charges he rejected totally, and especially the charge of being irreligious 
 
@@ -439,7 +439,7 @@ There was for instance an attack on Momer Williams on the score of his incompete
 
 
 
-228 SCHOLAR EXTRAORDINARY 
+[[228]]
 
 To dispro\e that some evidence was produced, and to this Max Muller’s supporters replied as follows 
 
@@ -453,7 +453,7 @@ I have never experienced [he wrote] the peculiar trial under which you are suffe
 
 
 
-OXFORD— DARK AND BRIGHT 229 
+OXFORD—[[229]]
 
 remain the oracle of all who wish to know 7 the secrets of Indian literature and religion 
 
@@ -471,7 +471,7 @@ However, this time Muller was elected, and he enjoyed the work very much. But th
 
 
 
-230 SCHOLAR EXTRAORDINARY 
+[[230]]
 
 and he resigned the sub-librarianship after about a year and a half, In 1868 the university on its own initiative recognized the merits of Max Muller in a striking manner It abolished the Taylonan Professorship of Modem European Languages, and created in its place expressly for him a new chair of Comparative Philology on a higher salary This was the first professorship created by the university itself All the previous professorships were established either by royal benefactions or private endowments This relieved Muller of the duty of lecturing on the European languages, and left him free to pursue his own subject 
 
@@ -485,7 +485,7 @@ There was no doubt that Muller was sincere in giving this reason for his resigna
 
 
 
-OXFORD— DARK AND BRIGHT 231 
+OXFORD—[[231]]
 
 intimate friends about his dissatisfaction For instance, on August 22 he wrote to Stanley 
 
@@ -497,7 +497,7 @@ Even this was not the whole story What brought his sense of grievance against Ox
 
 
 
-232 SCHOLAR EXTRAORDINARY 
+[[232]]
 
 The Council admitted the force of the argument and cancelled the session of the Convocation Williams's friends at once declared that this v ould be regarded as a stigma on him, for all the world had come to know that a degree was intended, and they even said that the stigma would be out of all proportion to the distinction which the degree would have given him Then the Council decided to propose the honorary degree of dcl, and proceeded with the matter This was regarded as a personal slight by Max Muller, and at the beginning of November he told his friends that he was going to resign 
 
@@ -509,7 +509,7 @@ A few days later Liddell wrote to Muller himself in the same
 
 
 
-OXFORD— DARK AND BRIGHT 233 
+OXFORD—[[233]]
 
 vein, and urged him to put off the resignation even if it were on general grounds Other friends also wrote to him All this showed that Muller’s fancy that he was only tolerated at Oxford was due to his own temperament which created these passing fits of impatience Anyhow, when he did resign on the general ground of work, they all set about doing something for him which would enable him to pursue his vocation without being encumbered by the duties of the Professorship The idea was to relieve him of the burden of lecturing on Comparative Philology by giving him a Deputy who would do that work, and to give him the status of a Professor Emeritus Even Lord Salisbury, as Secretary of State for India, took up the matter, and on January 27 Liddell wrote to Muller T have just received a “private” letter from Lord Salisbury, in which he expresses a warm desire on the part both of himself and of the India Council that you may be induced to remain at Oxford and in which he says that there “seems to be no objection in principle to the India Council co-operating with the University to incur the cost of publishing the ‘Indian Works’ which are mentioned in your list” ’ He also informed Muller that on Monday next he hoped to bring forward a proposal which might not be unsatisfactory to him This proposal was put into the form of a decree to be approved by the Convocation on February 15 and circulated by the Vice-Chancellor on January 31, 1876 It ran as follows 
 
@@ -519,7 +519,7 @@ Even so the author of Alice in Wonderland brought into play against the proposal
 
 
 
-234 SCHOLAR EXTRAORDINARY 
+[[234]]
 
 income All this, he said, he was writing in the interest of the unknown future holder of the Chair, though also in the interest of Max Muller, ‘for surely the very proposal to invite the new Professor to do the work for half the present salary, is to say, by implication, that the work has been hitherto overpaid — against which suspicion I, for one, desire to record my protest’ 
 

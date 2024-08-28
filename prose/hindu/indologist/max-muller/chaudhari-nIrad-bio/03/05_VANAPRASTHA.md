@@ -42,7 +42,7 @@ Richter’s charming prints, or Hans Andersen’s tales.
 
 
 
-346 SCHOLAR EXTRAORDINARY 
+[[346]]
 
 The historical pedigree of these two dachshunds was a favourite topic with him When an American scholar, Ethelbert D Warfield, Principal of Lafayette College, came to see him, Muller related that three types of dogs were plainly distinguished on the pyramids, and among them was the type to which these highly specialized dogs belonged 
 
@@ -72,7 +72,7 @@ Distinguished foreign visitors were always coming to his house to see him or to 
 
 
 
-348 SCHOLAR EXTRAORDINARY 
+[[348]]
 
 critic who represented his country in England as Minister, came often 
 
@@ -132,7 +132,7 @@ Soon after he had published the sixth and last volume of his Rig-Veda (1874), th
 
 
 
-350 SCHOLAR EXTRAORDINARY 
+[[350]]
 
 scholars together for making translations of the other sacred writings, but at the same time expressed the fear that it might not be an easy task The same year the project became more concrete He received an invitation from the Austrian Government to transfer his services to Vienna and to publish a series of translations as envisaged by him under the auspices of the Imperial Academy It was this proposal which, apart from personal reasons, lay behind his decision to resign from his chair at Oxford But, as has been related, his friends saw to it that he should get the time and facilities to carry out the project at Oxford 
 
@@ -206,7 +206,7 @@ But he felt that on the whole he had tried not to suppress the outspoken simplic
 
 
 
-354 SCHOLAR EXTRAORDINARY 
+[[354]]
 
 As to his general attitude, he rather feared that his fellow-workers would think that he had used very strong and irreverent language with regard to the ancient sacred books of the East But he justified his approach by saying that in the days of anthropological research when no custom was too disgusting to be recorded, it would be strange if the few genuine relics of ancient religion which had been miraculously preserved should be judged from an aesthetic, and not from an historical point of view 
 
@@ -236,7 +236,7 @@ Then followed a passage which might be described as Muller’s credo for the ser
 
 
 
-356 SCHOLAR EXTRAORDINARY 
+[[356]]
 
 The Bibles were considered by him [homo sapiens] as the best he could produce as superhuman and Divine , let that be one lesson But there is another, and a more cheerful lesson , amid all this scoria there are the small grams of gold — be good, be true, be patient, trust — the same everywhere, in the highest and the lowest religions, and these grams are the quod semper 3 quod ubique, quod ab omnibus , which will form the eternal religion of the world These Sacred Books of the East will become in future the foundation of a short but universal religion, they will remain the most instructive archives of the past, studied or consulted when thousands of books of the day are forgotten, and yet my wise friends say C ce n 3 est pas amusant 3 ? 
 
@@ -266,7 +266,7 @@ The tone of these notices, shows that in religion, as with language, Max Muller 
 
 
 
-358 SCHOLAR EXTRAORDINARY 
+[[358]]
 
 December 7, 1878, he wrote to Stanley 'Of course I know that many people will be angry with my Lectures If it were not so, I should not have written them The more I see of the so-called heathen religions, the more I feel convinced that they contain germs of the highest truth There is no distinction in kind between them and our own religion The artificial distinction which we have made has not only degraded the old revelation, but has given to our own almost a spectral character ’ 
 
@@ -300,7 +300,7 @@ Since the reading public always give every system of thought a hallmark and labe
 
 
 
-360 SCHOLAR EXTRAORDINARY 
+[[360]]
 
 strict sense It might also be regarded as being materialistic And he might be asked whether he was a Darwinian One special concept of thought, as arrived at by him, he thought it necessary to make explicit He said that 'thought in the sense in which I have defined it and used it in my book, represents one side of human nature only, the intellectual, and there are two other sides, the ethical and aesthetical, on which I have not touched' 
 
@@ -535,7 +535,7 @@ But the account I have given would also show that besides this — an unquestion
 
 
 
-372 SCHOLAR EXTRAORDINARY 
+[[372]]
 
 which is seen and accepted by the world at large, a man’s outward life , there is the second life which is seen by a man’s most intimate friends, his household life, and there is a third life, seen only by the man himself and by Him who searcheth the heart, which may be called the inner or heavenly life ’ 
 
@@ -583,7 +583,7 @@ As has been noted before, at the end of his life Max Muller set down that he was
 
 
 
-CONCLUSION 375 
+[[375]]
 
 as communication to others He often dwelt on the nature of a child’s faith 
 
@@ -637,7 +637,7 @@ This is putting faith in reason above faith in dogma or even belief From the rel
 
 
 
-378 SCHOLAR EXTRAORDINARY 
+[[378]]
 
 Christian faith, incapable of existing without reason, had to propound a new view of reason Le cosm a ses raisons que la raison ne connait pas To say Credo ul mtelhgam is typically Christian, to reverse the formula and say Intellego nt credam is also partly Christian, but only on the assumption that understanding is only an instrument of believing Taken without this limitation and reservation, the intellect could only destroy religious life Max Muller was certainly conscious of that too, for he wrote ‘True religion, that is practical, active, living religion, has little or nothing to do with logical or metaphysical quibbles Practical religious life, is a new life, a life in the sight of God, and it springs from what may be called a new birth 9 
 
@@ -667,7 +667,7 @@ First of all, according to him, religion, like all other objects of scientific i
 
 
 
-380 SCHOLAR EXTRAORDINARY 
+[[380]]
 
 to remain applicable to all later developments’ In any case, he was not readv to surrender the claim science had on religion, and so he wrote ‘To those who maintain that religion is chiefly modus cognoscendi Deum, a way of knowing God, we should reply that there is no conceptual knowledge which is not based first of all on perceptual knowledge ’ 
 

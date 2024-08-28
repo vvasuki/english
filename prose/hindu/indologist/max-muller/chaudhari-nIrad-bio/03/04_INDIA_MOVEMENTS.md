@@ -46,7 +46,7 @@ Again, in his book Biographies of Words , published in 1888, he wrote
 
 
 
-314 SCHOLAR EXTRAORDINARY 
+[[314]]
 
 How then shall we tell from language what races had to learn the language of their Aryan conquerors or their Aryan slaves ? There is no Aryan race in blood, but whoever, through the imposition of hands, whether of his parents or his foreign masters, has received the Aryan blessing, belongs to that unbroken spiritual succession which began with the first apostles of that noble speech, and continues to the present day in every part of the globe Aryan, in scientific language, is utterly inapplicable to race It means language and nothing but language, and if we speak of Aryan race at all, we should know that it means no more than Aryan speech 
 
@@ -76,7 +76,7 @@ What is now called ‘racialism 5 is not a zoological or purely genetic concept 
 
 
 
-316 SCHOLAR EXTRAORDINARY 
+[[316]]
 
 from other peoples and communities, but also superior Anyone who is at all familiar with Sanskrit literature cannot be unaware of this, cannot remain ignorant of what the notion of being Arya meant to the Hindu of ancient times 
 
@@ -110,7 +110,7 @@ Indians by themselves tried to reach that intellectual equality and also found t
 
 
 
-318 SCHOLAR EXTRAORDINARY 
+[[318]]
 
 perhaps a shade better than that of the barbarian, but that the discovery of Sanskrit had entirely revolutionized the course of thought and speculation ‘We were niggers at one time We now become brethren 5 Then he continued 
 
@@ -140,7 +140,7 @@ There were some Indians, he went on to say, who seemed to have persuaded themsel
 
 
 
-320 SCHOLAR EXTRAORDINARY 
+[[320]]
 
 half-mythical Hindu king, than to follow one of the learned professions which the English had created 
 
@@ -154,7 +154,9 @@ The warning was not heeded, the tendency grew, and by the end of the century a v
 
 
 
-INDIA 4 MOVEMENTS 
+[[4]]
+
+MOVEMENTS 
 
 
 321 
@@ -172,7 +174,7 @@ Though Curzon was not fully aware of what had actually happened, a strong curren
 
 
 
-322 SCHOLAR EXTRAORDINARY 
+[[322]]
 
 It is certainly true that the religion of the Hindus, as far as we can gather from their sacred hymns in the Veda, is free from everything that strikes us as degrading in the present state of religion and morality m India But between the ancient religion of India and the religious worship of the present generation there have been several falls and several rises Buddhism, in the sixth century before our era, was a reaction against corruptions that had crept into the ancient religion even at that early time Then, Buddhism, starting with the highest aspirations, degenerated into monasticism and hypocrisy, and a most rigorous form of the old Brahxnamc religion took possession of India, and drove Buddhism out of every corner of the country Smce that time there ha\e been several religious reforms, though of a more local character, and this makes it very difficult to generalize and treat the whole religious life of India as one organic body of religious thought Yet so much may be said with perfect truth, that if the religion of India could be brought back to that simple form which it exhibits in the Veda , a great reform would be achieved Something would be lost, for some of the later metaphysical speculations on religion, and again the high and pure and almost Christian morality of Buddha, are things not to be found in the Veda But, as far as popular conceptions of the deity are concerned, the Vedic religion, though childish and crude, is free from all that is so hideous in the later Hindu Pantheon 
 
@@ -202,7 +204,7 @@ It is true there are millions of children, women, and men in India who fall down
 
 
 
-324 SCHOLAR EXTRAORDINARY 
+[[324]]
 
 rat Na>, it is true that, in the broad daylight of the nineteenth century, the figure of the goddess Kali is carried through the streets of her own city, Calcutta, her wild dishevelled hair reaching to her feet, with a necklace of human heads, her tongue protruded from her mouth, her girdle stained with blood All this is true , but ask any Hindu who can read and write and think, whether these are the gods he believes m, and he will smile at your credulity How long this living death of national religion in India may last, no one can tell for our purposes, however, for gaming an idea of the issue of the great religious struggle of the future, that religion too is dead and gone 
 
@@ -228,7 +230,7 @@ Max Muller subsequently rested his hopes for a religious reform m India on the V
 
 
 
-326 SCHOLAR EXTRAORDINARY 
+[[326]]
 
 and died at Bristol in 1833 He had seen Rosen, the compiler of the first printed edition of the Rig-Veda , though a partial one, at work on the manuscripts, and told him that instead of wasting his time on it, he should study the Upamshads 
 
@@ -242,7 +244,7 @@ Thus the Vedtc Samhitas , or the Vedas strictly so-called, did not form the basi
 
 
 
-INDIA MOVEMENTS 327 
+[[327]]
 
 In India the acceptance of the Vedas as a basis for any form of modern Hinduism was due to another Hindu reformer, who, however, had nothing to borrow from the West This was Swarm Dayananda Saraswati, the founder of the Arya Samaj, a very nationalistic and somewhat fanatical sect of Hindu monotheists, virtually confined to the Punjab and Punjabis He did not know English, but he knew the Vedas by heart, and interpreted them in his own way He regarded the Vedas as revelation, divinely inspired, and supra-human He died in 1883, after the publication of Max Muller’s edition of the RigVeda, and it was reported that he carried the edition with him But in his commentary on the Rig- 
 - Veda in Sanskrit he was very hard on Muller He could not 
@@ -254,7 +256,7 @@ She was ignorant of Sanskrit and Sanskrit literature, but was proclaiming to the
 
 
 
-328 SCHOLAR EXTRAORDINARY 
+[[328]]
 
 of the Vedanta and of Buddhism (she could not always distinguish one from the other) were infinitely superior to all the philosophies of Europe, and even at that time the Brahmans were the depositories of the primeval wisdom of the world At one stage she was with Dayananda Saraswati, the founder of the Arya Samaj, and she declared that between them they would soon promulgate a new theosophy which would eclipse all former systems of thought But Dayananda was soon disillusioned and would have nothing to do with the Polish countess But she founded a Theosophical Society in India, with its headquarters at Adyar in Madras After her death one of her associates, Colonel Olcott, protested to Max Muller, and wanted to know whether he held that there was no esoteric interpretation of the Sanskrit Sastras 
 
@@ -268,7 +270,7 @@ In India the so-called Theosophy she preached was taken up by a number of educat
 
 
 
-INDIA MOVEMENTS 329 
+[[329]]
 
 Once there was a man with a peculiar power to grunt exactly like a pig, and he made a good deal of money by showing off his power of mimicry to the common people In one village where he was giving an exhibition, a holy man passed by, who decided to teach a lesson to these credulous people He advertised that he would show them a better performance, with much better grunting, free of cost People flocked to him, and, producing a real pig, he squeezed it to make it grunt But the people said Ts that all ? We hear that every day, what's there to it ^ And they all went away The sage said ‘Here is a splendid lesson We seldom care for reality, and always go in for imitation ’ 
 
@@ -328,7 +330,7 @@ It may seem strange that a son of India, one who calls himself a believer in Bra
 
 
 
-332 SCHOLAR EXTRAORDINARY 
+[[332]]
 
 The difficulty was Sen’s rejection of the very Kerygma of Christianity Muller gave him a rather long explanation according to his own understanding of it, which he said would be regarded by many theologians of his day as very strange Even so he set it forth, and the crucial passage was 
 
@@ -344,7 +346,7 @@ There the matter rested so far as Keshub Chunder Sen was concerned More than thi
 
 
 
-INDIA MOVEMENTS 333 
+[[333]]
 
 My dear friend, You know for many years I have watched your efforts to purify the popular religion of India, and thereby to bring it nearer to the purity and perfection of other religions, particularly of Christianity You know also that I have paid close attention to the endeavours of those who came before you, of men like Rammohun Roy, Debendranath Tagore, Keshub Chunder Sen, and others, in whose footsteps you have boldly followed I know that you have met with many disappointments and many delays, but you have never lost heart and never lost patience I confess that I have several times felt very unhappy about the mischances that have befallen your good cause, but even when Keshub Chunder Sen was forsaken by a number of his friends and followers, on utterly insufficient grounds, as far as I could judge, and again, when he was taken from us in the very midst of his glorious work, I never lost faith in the final success of his work, though I began to doubt whether I should live to see the full realization of his hopes 
 
@@ -358,7 +360,7 @@ Christ comes to you [he wrote] as He comes to us in the only trustworthy records
 
 
 
-334 SCHOLAR EXTRAORDINARY 
+[[334]]
 
 right to dictate our interpretation of these Gospels to you, particularly if we consider how differently we interpret them ourselves If you accept His teachings as recorded, you are a Christian There is no necessity whatever for your being formally received into the membership of one or other sect of the Christian Church, whether reformed or unreformed That will only delay the growth of Christianity in India 
 
@@ -394,7 +396,7 @@ This was Max Muller’s last testament to India about religion There can be no d
 
 
 
-336 SCHOLAR EXTRAORDINARY 
+[[336]]
 
 The Rev H J Bidder, Vicar of St Giles and a close friend of Max Muller, at once replied to the accusation on behalf of his sick parishioner, saying that ‘as one privileged to minister to his closing days, and well acquainted with his religious convictions, I cannot allow the reckless assertion made against Professor Max Muller to go uncontradicted in his own city 5 Some more correspondence followed, and Mr Bidder wound up in the Oxford Times with this remark ‘Perhaps I ought to have remembered that he enjoys a position in the greater world of religious thought — to say nothing of mward strength and serenity — which places him beyond the reach of attack either from private bigotry or from the Oxford Diocesan Conference 5 
 
@@ -476,7 +478,7 @@ Dear Professor Max Muller, I hope that you will excuse me for troubling you with
 I can assure you that I appreciate very highly the assistance with you have rendered to me It is a great satisfaction to me to find that the course of policy which I am pursuing meets with your approval I have need of all the aid which I can receive from England, for I am assailed 
 
 
-INDIA MOVEMENTS 341 
+[[341]]
 
 here with a storm of bitter and unscrupulous hostility, which you, who dwell in a calmer atmosphere, can scarcely realize 
 
@@ -496,7 +498,7 @@ The government of India by a mere handful of Englishmen [he wrote] is, indeed, a
 
 
 
-342 SCHOLAR EXTRAORDINARY 
+[[342]]
 
 one wishes one could persuade one’s neighbours also to sit still and hold their breath If ever there were an accident, the crash would be fearful, and who would suffer most? Fortunately, by this time the people of India know all this 
 

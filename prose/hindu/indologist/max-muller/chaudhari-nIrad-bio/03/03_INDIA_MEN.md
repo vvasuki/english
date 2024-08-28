@@ -16,7 +16,7 @@ The fact that he had no first-hand experience of India was often thrown in his t
 
 
 
-288 SCHOLAR EXTRAORDINARY 
+[[288]]
 
 direction, wrote on May 10, 1903, in reviewing Mrs Max Muller’s biography of her husband 
 
@@ -46,7 +46,7 @@ It was a real misfortune that Sanskrit literature became first known to the lear
 
 
 
-290 SCHOLAR EXTRAORDINARY 
+[[290]]
 
 This was virtually falling in with the view of Sanskrit literature taken by Mill and Macaulay, quoted in a previous chapter 
 
@@ -78,7 +78,7 @@ A man of Max Muller’s deep and broad humanity could not fail to be attracted t
 
 
 
-292 SCHOLAR EXTRAORDINARY 
+[[292]]
 
 had either Indian acquaintances or Indian correspondents The first Indian he met was Dwarkanath Tagore, born at the end of the eighteenth century, and one of his last correspondents was an eminent Bengali whom I used to meet in Calcutta in the thirties of this century In between there were many figures of first rank in modern India like Raja Radhakanta Deb, Debendranath Tagore, Keshub Chunder Sen, Rajendra Lai Mitra, Bhao Daji, Behramji Malabari and K T Telang He particularly sympathized with those who were trying to reform Indian religion and social customs, and were not only working for the cause, but also suffering for it In doing so and championing them, he did not shrink from courting unpopularity and abuse A full account will be found in the second volume of his reminiscences, Auld Lang Syne But my accounts are also given from intimate personal correspondence 
 
@@ -106,7 +106,7 @@ C E Gardner, The Life of Father Goreh , edited and with a preface by R. in Benso
 
 
 
-294 SCHOLAR EXTRAORDINARY 
+[[294]]
 
 as his guest He was a man of extraordinary and almost wild enthusiasm and eloquence, and spoke English as well as he did Bengali He was bom into a wealthy and very respected family of Calcutta, but had given up, or rather was forced to give up, his family on account of his religious convictions However, he gave up his secular employment voluntarily, and became a preacher His very young wife accompanied him both in his religious mission and his break with Hindu society 
 
@@ -172,7 +172,7 @@ About flag-wavmg by Sen’s followers, Muller, if anything, was even more sensib
 
 
 
-298 SCHOLAR EXTRAORDINARY 
+[[298]]
 
 worshipping a flag I am sure he does not pay half the worship to his flag which every English soldier does to his It often becomes to him a real fetish, and yet a soldier, when he dies for his flag, is honoured by the very people who now cry out against Keshub Chunder Sen, because he honours his flag, as a symbol of his cause. 5 
 
@@ -206,7 +206,7 @@ This very incomplete account of Max Muller’s personal relations with Indians s
 
 
 
-300 SCHOLAR EXTRAORDINARY 
+[[300]]
 
 epic in immature Max Muller wrote of her as the ‘truly heroic Hindu lady, in appearance small, delicate, and timid, but in reality strong and bold as a lioness’ 
 
@@ -238,7 +238,7 @@ The other Hmdu woman to whom Max Muller paid a glowing tribute though he never m
 
 
 
-302 SCHOLAR EXTRAORDINARY 
+[[302]]
 
 got the medical degree Her name was Anandibai Joshi She had been, married at the age of nine, and had been very happy in her marriage So, when asked to speak about child-marriage before an American audience, she stood up and defended it, though of course only as betrothal albeit binding for life She had seen the suffering of young mothers in India, and resolved to take a medical training m America, saying, however T will go to America as a Hmdu, and come back and live among my people as a Hindu ’ So at the age of eighteen she went to Philadelphia with her husband, in spite of endless difficulties, and enrolled as a student in the Medical College of Pennsylvania 
 
@@ -264,7 +264,7 @@ Before the Mutiny the attitude was one of more or less passive contempt But afte
 
 
 
-304 SCHOLAR EXTRAORDINARY 
+[[304]]
 
 to shout ‘If they are all like him, the more they shoot the better ’ It must be added, however, that the Indians fully reciprocated the hatred No one stated this more clearly than one of the greatest of modern Indians, the famous Bengali writer, Bankim Chandra Chatterji He wrote in 1873 
 
@@ -296,7 +296,7 @@ Clearly, this English Orientalist had the animus of Whitney against Max Muller w
 
 
 
-306 SCHOLAR EXTRAORDINARY 
+[[306]]
 
 Even so the wholesale running down of Indians continued, and those who looked upon Indians as an inferior race protested against Max Muller’s description of them as biased Muller admitted quite frankly that the Indians he had known intimately — Dwarkanath Tagore, Keshub Chunder Sen, Behramji Malaban, Ramabai — were exceptional beings, who would be so in England as anywhere else He was not an indiscriminate admirer of everything Indian He had had some unpleasant experiences with the small number of young Indians who came to Oxford About one very unpleasant experience with them he was driven to write in his reminiscences ‘These men have a very curious way of blushing If you convict them of a downright falsehood, their bright brown colour turns suddenly greyish, but their eloquence in defending themselves never fades or flags ’ If I had not read the vindication of Hindu truthfulness offered by Muller, I should have said that the spirit of this remark was not very far from those made by the hardboiled Anglo-Indians of his tunes 
 
@@ -322,7 +322,7 @@ It makes little difference to these mvmcibles that where they say ‘Black’ ot
 
 
 
-308 SCHOLAR EXTRAORDINARY 
+[[308]]
 
 ‘Residence in India/ he pointed out, ‘had its dangers as well as its advantages ’ Firstly, India is a large country and not even twentyfive years in Calcutta, Bombay or Madras would justify an experienced civil servant in beginning a single sentence with ‘the people of India’ Secondly, Anglo-Indians lived in an English environment, and when they saw the Indian environment they saw it in a changing state due to contact with English influences Thirdly, an observer might be too near as well as too far, and nothing was more difficult than for a soldier to see the battle in which he is fighting as a whole, or for Bismarck to write the history of his time 
 
@@ -352,7 +352,7 @@ Finally, it has also to be said that among us the notion of verbal truthfulness 
 
 
 
-310 SCHOLAR EXTRAORDINARY 
+[[310]]
 
 but to be called a ‘liar’ was unforgivable That shows how foreign the idea of verbal falsehood was among us The European influence also created the white lie in India, prevarication and casuistry, for which before there was hardly any need Therefore one might say that Max Muller’s defence of Hindu truthfulness was as well founded in one way, as was in another the accusation that we Hindus were liars to a man Modern and Westernized Hindus of the late nineteenth century did not understand this difference, and took Max Muller’s defence of Hindu truthfulness with all its Western implications Therefore when Lord Curzon in one of his convocation speeches admonished the students of Calcutta University to respect truth hn all circumstances’, the whole of educated India was scandalized 
 

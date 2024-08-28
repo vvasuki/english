@@ -16,7 +16,7 @@ Muller had not as yet taken his doctorate when Cousin Emilie and Hagedorn devise
 
 
 
-WANDERINGS OF YOUNG MAX MULLER 39 
+[[39]]
 
 Emilie and her husband the Prince were childless, they wanted to adopt him and give him a new name and also a title Furthermore, they offered to find a wife for him Max Muller shook his head, and without hesitation declined all the honours, he wanted to re main independent and true to his first love, Sanskrit All the decisive turns in his life were unexpected, almost accidental, but there did appear to be an inevitability in all that happened to him 
 
@@ -28,7 +28,7 @@ He arrived there at the beginning of April, and at first stayed in the house of 
 
 
 
-40 SCHOLAR EXTRAORDINARY 
+[[40]]
 
 month for the room, service and cleaning of boots, and found the people of the house to be clean and respectable 
 
@@ -42,7 +42,7 @@ Nevertheless, when lecturing he told them that he had forgotten his Persian, and
 
 
 
-WANDERINGS OF YOUNG MAX MULLER 41 
+[[41]]
 
 I can only show you how to learn it I learned everything by myself, and so can you We will work together, but that is all I can do ’ 
 
@@ -54,7 +54,7 @@ He paid more attention to Schelhng, and attended his course of lectures more dil
 
 
 
-42 SCHOLAR EXTRAORDINARY 
+[[42]]
 
 own system, and remarked how an inclination to Vedanta also showed itself , 
 
@@ -66,7 +66,7 @@ As to his studies, they were more desultory than concentrated. He attended lectu
 
 
 
-WANDERINGS OF YOUNG MAX MULLER 43 
+[[43]]
 
 intervened for him But he made translations from Sanskrit, read Pali and Hindustani, and learned the elements of Bengali by himself What distracted him was anxiety about money combined with total unceitainty about the future His scholarship was small enough, but even that was going to be stopped at the end of a year. At first, to economize, when not asked out he dined at a restaurant which supplied a dinner, considered good by him, for only sixpence Later he lived on only bread and butter at home, and coffee without milk or sugar In the diary which he kept then such entries as ‘no dinner’ 01 ‘dinner of scrambled eggs’ (prepared by himself) occur frequently Despite all this, he wrote to his mother that he was doing well and nothing was wanting to him except his dear little mother He even admonished her ‘Don’t say again you do not like Chemnitz — a contented spirit is happy anywhere ’ 
 
@@ -80,7 +80,7 @@ I am longing to be away from Berlin, to get a thorough change of thought, as I r
 
 
 
-44 SCHOLAR EXTRAORDINARY 
+[[44]]
 
 His mother had assured him that he still had 800 thalers (= £ 120 ), the money left by his father to start him in life But Muller told her that it would last only until he had settled where to live, and thus he would continue to study and starve, in order not to relinquish an idea which he had taken up for his own pleasure and for which he had sacrificed much money and time He added, with injustice to himself, that if he had more courage and a firmer point to cling to, he could perhaps still try his luck, but as things were nothing remained for him but to become a sensible schoolmaster, and this at least would give him bread and butter 'You will find/ he commented, 'that a certain amount of resignation is needed for such a decision ’ 
 
@@ -94,7 +94,7 @@ My dearly loved Mother, As I am sitting here quite alone on my birthday I must g
 
 
 
-WANDERINGS OF YOUNG MAX MULLER 45 
+[[45]]
 
 shown me I went Thursday early to Hagedorn, and we talked over everything, and the result is he has asked me to go to Pans with him , to live with him there and work So in about four weeks from today I shall be in Pans Hagedorn will tell you all this hims elf more fully 
 
@@ -107,7 +107,7 @@ The arrival was an unsolicited adventure Hagedorn’s address was given to him a
 
 
 
-46 SCHOLAR EXTRAORDINARY 
+[[46]]
 
 brought, and restoung himself Muller discussed the most necessary matters with Gathy 
 
@@ -119,7 +119,7 @@ He got offers of help from friends, but refused them He had at times to borrow m
 
 
 
-WANDERINGS OF YOUNG MAX MULLER 47 
+[[47]]
 
 London, as tutor of his children, all expenses paid and 3,000 francs a year But the Minister required a promise that Muller would never leave his children even for an hour, and such a condition appeared so degrading and foolish to him that he declined He wrote to his mother 
 
@@ -135,7 +135,7 @@ Separation loses its bitterness when we have faith in each other and in God. Fai
 
 
 
-48 SCHOLAR EXTRAORDINARY 
+[[48]]
 
 God keeps us together in eternity But I see I am talking Sanskrit philosophy instead of simply telling you not to be unhappy, not to make yourself and others uneasy, but try to enjoy life in this lovely spring weather, whether in Chemnitz or Dresden [Or again] But enough of these lamentations, which are of no use, least of all in Paris Melancholy and frivolity are the two scales in which men here go up and down , happy he who sits in the middle quiet and observant as an Indian Muni [Sage] 
 
@@ -153,7 +153,7 @@ But of course the other parts of his mmd remained active, and he
 
 
 
-WANDERINGS OF YOUNG MAX MULLER 49 
+[[49]]
 
 could amuse himself with what he saw As he wrote to his mother ‘For interesting observation there is no place like this ’ Only he wished his mother there too At first he took to that absorbing occupation of a visitor, Flaner a Pans , lounging about in the city and taking in its outward beauty, and also taking delight in the rush and bustle of the streets The contrast of such scenes with the quiet of Dessau and Leipzig made him laugh out loud Soon after his arrival he found that the days which, in the serious world, were called Holy Thursday and Good Friday, were known as Longchamps m Paris, and he saw magnificent equipages, ladies in splendid dresses and well-groomed gentlemen, driving out through the Champs Elysees to the races 
 
@@ -183,7 +183,7 @@ He became very eloquent, and so excited that Max Muller pacified
 
 
 
-WANDERINGS OF YOUNG MAX MULLER 51 
+[[51]]
 
 him by saying that he was quite aware that India possessed a science of music founded on mathematics 
 
@@ -197,7 +197,7 @@ Muller had opportunities to meet the foremost literary and intellectual figuies 
 
 
 
-52 SCHOLAR EXTRAORDINARY 
+[[52]]
 
 one result of his seeing so little of French life was that his spoken French remained imperfect 
 
@@ -205,7 +205,7 @@ But in connexion with his own interests he was bound to meet French Orientalists
 
 
 
-WANDERINGS OF YOUNG MAX MULLER 53 
+[[53]]
 
 m the world of scholarship that of editing and publishing the Rig-Veda , the oldest scripture of the Hindus 
 
@@ -217,7 +217,7 @@ In the morning, once the ship had entered the Thames, Muller recovered Russell s
 
 
 
-54 SCHOLAR EXTRAORDINARY 
+[[54]]
 
 London to pursue his studies in Oriental literature, and Russell said that he was a law student in the Middle Temple At the Customs House above Blackwall Muller found that his portmanteau with all his worldly goods, and particularly his papers and letters, had not arrived He was in a panic and told Russell that if it was lost that would be ruinous to him The luggage of all the passengers was gone over again, but there was not a trace of the missing trunk Seeing Muller’s distress Russell offered to take him to his chambers, give him a shakedown for the night, and come back the next day to look for the box Very much moved, Muller accepted the offer, was driven to the Temple, and after dining at Andertons m Fleet Street, went to sleep on a comfortable couch and in a sleeping suit provided by the laundress The next day Russell and Muller went back to the Customs House and found the trunk, and Russell secured a decent bedroom for him at io$ a week at the house of a tailor in near-by Essex Street Max Muller settled himself in, and in two days had seen Hyde Park, St James’s Palace, Westminster, St Paul’s and the Tower, besides calling on Professor Wilson to obtain permission to examine manuscripts in the library of the East India Company 
 
@@ -229,7 +229,7 @@ A friend took me to the Italian Opera, which I had not yet seen either here or i
 
 
 
-WANDERINGS OF YOUNG MAX MULLER 55 
+[[55]]
 
 and I saw Queen Victoria and Prince Albert, the Duke of Cambridge, etc The music absolutely perfect, Anna Bolena , sung by Gnsi, Mario and Lablache, all the highest artistic perfection And then a ballet to which there can be nothing equal, and Jugement de Pans with Taglioni, Grahn, and Cento as the three goddesses The decorations were beautiful 
 
@@ -242,7 +242,7 @@ But his greatest problem was still money Fie found that his German money did not
 
 
 
-56 SCHOLAR EXTRAORDINARY 
+[[56]]
 
 and actually some days passed dinnerless One evening, however, as Muller was passing the shop the man rushed out, saying ‘Oh, sir, I have watched for you several days You were right, I found that I had ten shillings too much when I counted up my money that evening, and I have longed to get it back to you,’ and then he added, Tor you look as if you wanted it ’ 
 
@@ -256,7 +256,7 @@ Wilson was always sympathetic and willing to help, but for the present he could 
 
 
 
-WANDERINGS OF YOUNG MAX MULLER 57 
+[[57]]
 
 He had formed the idea of writing a history of spirituality when he was only twenty-five, and had actually planned to go to India to find the Veda which was believed to embody the earliest spiritual expression of man But while waiting in Rome on his way to the East, he became a friend of the Piussian Crown Prince, the future King Frederick William IV, and eventually joined the diplomatic service of his country But though he gave up the idea of studying the Veda, he never lost his scholarly and philosophical interests He worked hard at his books, and published the first of his many large works on religion and philosophy, Christianity and Mankind, in 1854 On the strength of recommendations from Humboldt and Baroness Stolzenberg he had in 1844 secured for Max Muller the offer of a tutorship, which Muller had rejected But the two had never met Now they did, about three weeks after Muller’s arrival in London, when he called on Bunsen at 4 Carlton Terrace At that time, Bunsen was fifty-five and Muller still not twenty-three Muller was astonished by the warmth of his reception This meeting was a turning-point in his career, and to the end of his life Muller felt that he could never adequately express what he owed to Bunsen Bunsen told him how glad he was to see the son of his old friend, and advised him to continue his researches without giving thought to anything else When Muller told him about his work and his financial difficulties, Bunsen at once assured him that he had found a friend (meaning himself) who would care for him as a father for a son And he kept his word He asked Muller to trust him absolutely, for he was going to take all responsibility on himself For nearly a year Muller was supported by his patron, and without that help he would have had to abandon his researches and go back to Germany What attracted Bunsen to Muller was in the first instance the Veda, whose quest he had to renounce Thus whenever he was shown some portion of Muller’s work, he said T am glad to have lived to see the Veda Whatever you want, let me know. I look upon you as myself grown young again ’ 
 
@@ -266,7 +266,7 @@ Though Muller did not live in Carlton Terrace, he made it his real home in Londo
 
 
 
-58 SCHOLAR EXTRAORDINARY 
+[[58]]
 
 even during receptions, Bunsen would sit with him in the library discussing all sorts of subjects with him They did not always agree During his stay in Rome Bunsen had become acquainted with Champollion, the decipherer of hieroglyphics, and had shifted his interest to Egyptology As a result, he inclined to give primacy to Egypt and not to India in respect of the first emergence of thought and civilization Max Muller did not deny that Egypt had older historical records, but he said that his interest lay in thought Bunsen at times got very excited, for in argument he could be very violent, but that never made any difference to his affection for Muller, who was invited to all parties and special occasions besides being taken to Bunsen’s country-house at Totteridge 
 
@@ -278,8 +278,7 @@ The normal parties were, however, much more intimate, and Muller liked the whole
 
 
 
-WANDERINGS OF YOUNG MAX MULLER 59 
-
+[[59]]
 
 in the middle of a conversation and seeing on all sides Raphaels, Titians, Murillos, Carlo Dolcis — all originals He added a comment which makes me feel that things have changed since his days ‘This sort of thing only exists in England 9 
 
@@ -291,7 +290,7 @@ Max Muller had begun to copy and collate the mss of the RtgVeda with a view to p
 
 
 
-60 SCHOLAR EXTRAORDINARY 
+[[60]]
 
 hundred sets At the suggestion of both Bunsen and Wilson, Muller called on the Directors, but they were unwilling to give financial support to a work carried out in a foreign country Then Bunsen, who had influence with the Directors, stepped in energetically It was no easy task to persuade the Board of Directors, all practical businessmen, to authorize considerable expenditure on an old book which none of them could read and many had not even heard of But Bunsen saw the Chairman as well as the Directors, and represented to them what a disgrace it would be if some other country than England published this sacred book of the Hindus Professor Wilson too threw in his weight At their insistence, the Directors agreed to the project in principle 
 
@@ -301,8 +300,7 @@ I knew that none of my relations and friends agreed with me, on the contrary, th
 
 
 
-WANDERINGS OF YOUNG MAX MULLER 61 
-
+[[61]]
 
 without my saying anything to him, stood by me, and in this way made it possible for me to struggle on with joyful confidence and firm faith towards the goal I had set before me I do not know whether I should thank God more that I have at last attained my long-desired and long-sought object or that I have gained the friendship of so noble and distinguished a man as Bunsen 
 
@@ -312,7 +310,7 @@ He came to Oxford four months later to pay a more formal visit, to read a paper 
 
 
 
-62 SCHOLAR EXTRAORDINARY 
+[[62]]
 
 Muller prepared the paper, but remained nervous, for he knew that, generally speaking, English scholars were hostile to German scholarship. More especially, he was afraid of some not very friendly ethnologists like Dr Latham and Mr Crawford, the latter well known in British learned circles as the Objector General As he expected, he was criticized when in his paper he tried to prove the Indo-European and Sanskntic affiliations of the Bengali language, which were being denied by a school of English philologists But the opposition was not so much against him or his views, as against what a group of English scholars called the ‘German clique’ headed by Prince Albert and Bunsen , and the Prince too was present at the congress However, Dr Pritchard, the pioneer British anthropologist, defended him very generously Later, there was even objection to including Muller’s paper in the proceedings, but Bunsen declared that he would not allow his own paper to be printed unless Muller’s was also, so it was Max Muller never reprinted the paper because he thought it was very immature But I found it extremely interesting as the first formulation of his linguistic ideas I have also been surprised by the knowledge he showed of the Bengali language, which he had learned in Berlin and then practised with Dwarkanath Tagore in Pans 
 
@@ -322,8 +320,7 @@ Max Muller went back to London to resume his work on the Rig-Veda But in order t
 
 
 
-WANDERINGS OF YOUNG MAX MULLER 63 
-
+[[63]]
 
 I am still so excited that I can hardly describe all that I have seen and done Since Tuesday last [Feb 24] I have had sleepless nights from fighting, the roar of cannon, burning of houses, fall of buildings, etc , men murdered by hundreds or simply shot down in the streets No one’s life was safe, for there was neither Government, police, nor soldiers The man in the blouse was lord of all, and blood ran in the streets, which were filled with barricades Women on horseback, ruffians on the finest officers’ chargers paraded the streets, carrying LouisPhilippe’s throne in triumph One could see all that went on from Hagedorn’s windows, the bullets whistled on every side, and yet ladies went out on foot pour voir la Revolution We did the same, and were more than once pursued by the cavalry I saw barricades built up of omnibuses, tables and pianos, attacked and taken, and again built up, till at last the soldiers fraternized with the people, gave up their weapons, and finally withdrew There was nothing grand in it 
 
@@ -335,7 +332,7 @@ He wrote to his mother that 'one hardly sees a single ugly face in a 3\*
 
 
 
-64 SCHOLAR EXTRAORDINARY 
+[[64]]
 
 ballroom — which one cannot say in either France or Germany’ Then he had his German circle, consisting of German Sanskrit scholars as well as the German merchants at Denmark Hill All this came in the way of his work So in May 1848, he went to Oxford, and took rooms in Walton Street As it happened, this turned out to be the beginning of a lifelong stay 
 
@@ -345,7 +342,7 @@ He was noticed by the town, as well as the gown, as a rare and exotic bird in th
 
 
 
-WANDERINGS OF YOUNG MAX MULLER 65 
+[[65]]
 
 taman principality ruled by Duke Leopold to England under the young Queen Victoria, to the Oxford of Jowett and Mark Pattison soon to be remodelled by Gladstone It was a remarkable feat for a man so young, so poor and so obscure, and the passage was no less long in terms of cultural distances than it was in space In AnhaltDessau he was in the Age of Enlightenment and Benevolent Despotism, in England people were exulting over the march of industry, science and democracy He had also reached the place where he was to spend the rest of his life, and had at last ensured a means of living which would free him from literally praying for his daily bread 
 
@@ -355,7 +352,7 @@ But the strength with which such a sense of vocation can take hold of a man is w
 
 
 
-66 SCHOLAR EXTRAORDINARY 
+[[66]]
 
 It must however be pointed out that even this beginning would not have been possible solely through his own determination and effort, unless there was something in the spirit of the age that could help him At extremely critical points of his life he had received help which came to him as if by complete chance, and he had also received general aid and encouragement which he could not have reckoned on One has to admit that a young man in Muller’s position would never have got all this in our age Quite apart from ministers, politicians, eminent divines and men of letters, would a university don of today receive a penniless beggar such as Muller appeared in the eyes of the world ? Would any head of a college at Oxford invite to his house a young and unknown foreign scholar working in the Bodleian ? The truth of the matter is that in our age, m spite of all its talk about equality of opportunity and the iniquity of class distinctions, successful and established men are infinitely more exclusive, set-conscious, stand-offish and snobbish than men in their position were in any aristocratic age Our age has erected such psychological barriers between men of different positions that the outcome has been the creation of a rancorous hatred by the have-nots for what they call the ‘Establishment’, which is mistakenly taken for a revolutionary movement Our times have recovered the primitive’s hostility for the ‘unlike’ Today an exceptional man is swamped by sheer numbers The aristocratic age recognized classes, but never made them over-rigid Its elite needed new blood continuously, and so just as it maintained its economic prosperity by marrying into wealthy bourgeois families, it welcomed talent to maintain its mental level 
 
@@ -363,7 +360,7 @@ There is always something mysterious about the rise of a man to fame and spectac
 
 
 
-WANDERINGS OF YOUNG MAX MULLER 67 
+[[67]]
 
 ‘Everything in my career came about most naturally, not by my own effort, but owing to those circumstances or to that environment of which we have heard so much of late/ That appears to be the theory of natural selection applied to personal success 
 
@@ -379,7 +376,7 @@ Anyway, through his life at Oxford Max Muller had come into close contact with m
 
 
 
-68 SCHOLAR EXTRAORDINARY 
+[[68]]
 
 working as a clearing house of ability Besides, he had also secured the good opinion of men in his line who counted, in Berlin, Pans and London In his personal affiliations he was well placed, and it now depended only on him as to how high he would rise 
 

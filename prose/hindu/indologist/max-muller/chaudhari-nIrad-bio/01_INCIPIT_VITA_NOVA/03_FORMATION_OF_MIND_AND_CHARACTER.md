@@ -13,7 +13,7 @@ The foundations of Max Muller’s mental life were laid in
 
 
 
-70 SCHOLAR EXTRAORDINARY 
+[[70]]
 
 Anhalt-Dessau, and under the control of the social and geographical environment which that principality constituted He made a symbolic confession about this himself He wrote in his autobiography, published after his death, that the Dessau dialect remained with him for life, and his friends told him that though he had spoken English and French for years they could always detect from his German accent that he came from Dessau or Leipzig One might add that there remained a dialectal or local accent in his thinking and feeling 
 
@@ -29,7 +29,7 @@ or the world could not have been created in six days, what was that to
 
 
 
-FORMATION OF MIND AND CHARACTER 71 
+[[71]] 
 
 
 me ? Suppose it was proved to me that Christ could never have given leave to the unclean spirits to enter into the swine [on the assumption that He could not be so unjust and unkind to innocent animals] what was that to me ? Let Colenso and Bishop Wilberforce, let Huxley and Gladstone fight about such matters , their turbulent waves could never disturb me, could never even reach me in my safe harbour 
@@ -46,7 +46,7 @@ He always made a distinction between the Christ of faith and the Christ of the C
 
 
 
-72 SCHOLAR EXTRAORDINARY 
+[[72]]
 
 truly human character of Christ It has almost vanished under the extravagant phraseology of hymns and creeds — and yet how much greater is the simple story of his unselfish life than all the superlatives of later theology 5 
 
@@ -60,7 +60,7 @@ His Lutheranism made Muller unsympathetic even to medieval German mysticism whic
 
 
 
-FORMATION OF MIND AND CHARACTER 73 
+[[73]] 
 
 ‘The whole mysticism of the fourteenth century/ he said, ‘seems to me useful as a preparation, but it fiist attained its solution in that manly and courageous return to actual life which we find in Luther ’ Muller would have none of the ecstasy in annihilation which is the essence of Christian mysticism He accepted it as the first step ‘Man must, once in his life/ he said, ‘perceive nothingness, he must feel that of himself he is nothing, that his being, his beginning, his eternal life, are rooted and hid in something supra-terrestrial and incomprehensible 5 But that negative return to God could never lead to the goal, though it could create a divine longing after a true home The truth was that man could not abolish the act of creation, as the mystics desired Though formed from nothing, that is to say, by and of God alone, he could not through his own power return to nothing, and the self-annihilation of which the mystics spoke was hardly better than the Buddhistic Nirvana 
 
@@ -72,7 +72,7 @@ That was the crux of the matter Max Muller’s faith belonged to a robust and ac
 
 
 
-74 SCHOLAR EXTRAORDINARY 
+[[74]]
 
 fact, on Christ and his disciples as historical characters, on the Old and New Testament as real historical books 
 
@@ -82,7 +82,7 @@ This shows that Muller was coming into the great movement of thought regarding C
 
 
 
-FORMATION OF MIND AND CHARACTER 75 
+[[75]] 
 
 objected to Renan’s idyllic leanings, and when his Vie de Jesus was published in 1863, he called the image presented in that book, ‘Renan’s ghost, or rather his corpse of Christ’, which was very severe In the end Muller came to believe that each man had the right to believe in his own Christ, and to this view, he remained true, all through his life 
 
@@ -94,7 +94,7 @@ I had already said to myself that you would not be pleased that I had read Wilhe
 
 
 
-76 SCHOLAR EXTRAORDINARY 
+[[76]]
 
 imagine that God did not know what sin and temptation are, we could 
 
@@ -108,7 +108,7 @@ On the other hand, the smallness of the human community in Dessau developed in h
 
 
 
-FORMATION OF MIND AND CHARACTER 77 
+[[77]] 
 
 gave away in charity In his days of prosperity he far exceeded this sum To his mother and sister he was most generous, and though he preferred the best cigars he gave up smoking altogether in order that his ‘charity purse’, as he called it, might not suffer 
 
@@ -122,7 +122,7 @@ It has been my good fortune to see a good deal of royalty during the whole of my
 
 
 
-78 SCHOLAR EXTRAORDINARY 
+[[78]]
 
 Of course, he was aware that there were differences among the royalty as among the commonalty But he said that many bishops displayed their mitres and crosiers before other people’s faces much more than kings waved their crowns or sceptres Many people who become something, he added, forget that they were already something, and seem to assume that they were created afresh when they were made peers, temporal or spiritual The princes, on the other hand, were to their business born, they did not become royal, but were born royal 
 
@@ -136,7 +136,7 @@ Finally, however, he had to decide what he would concentrate on. He found little
 
 
 
-FORMATION OF MIND AND CHARACTER 79 
+[[79]] 
 
 His work in Greek and Latin had been on established scholarly lines He respected his teachers in classical scholarship Fie saw that they taught the principles of criticism, both external and internal, very thoroughly, and made the student realize what accuracy meant Rut he regretted that he had failed to acquire a larger knowledge of Greek and Latin literature, and of the character and spirit of each author He wanted to break out of this closed world into the open air of a wider mental world So he betook himself to philosophy 
 
@@ -150,7 +150,7 @@ The teaching of another professor, Drobisch, also served Muller as an antidote t
 
 
 
-80 SCHOLAR EXTRAORDINARY 
+[[80]]
 
 was historical In developing a historical attitude to the growth of human thought, Max Muller was influenced and guided by another professor, Dr Niedner, whose manual for the history of philosophy he found useful all through life In contrast with Weisse and Drobisch, the teaching of Niedner was wholly historical This appealed to Muller, and as he said, his own philosophical interest became strong and healthy only after he had heard the lectuies of Niedner 
 
@@ -168,7 +168,7 @@ been easy to institute it, for at that time there was a good deal of
 
 
 
-FORMATION OF MIND AND CHARACTER 81 
+[[81]] 
 
 prejudice in scholarly circles against Sanskrit, especially among the classical scholars The number of men who stood up for it were still very small, though they were all eminent, e g , Wilhelm von Humboldt, and the two Schlegels 
 
@@ -182,7 +182,7 @@ What does it matter whether Bengali belongs, by its grammatical structure, to th
 
 
 
-82 SCHOLAR EXTRAORDINARY 
+[[82]]
 
 the human mind by human speech, we derive, I think, a threefold advantage — an historical, practical, and philosophical 
 
@@ -202,7 +202,7 @@ Such a view of life neither did nor could exclude music, not only as an accepted
 
 
 
-FORMATION OF MIND AND CHARACTER 83 
+[[83]] 
 
 our ears in the external world, not even the song of a lark So he declared that neither history nor evolution could help anybody to account for Schubert’s Trockne Blumen , and he added that Schubert’s melodies were picked up, not in the Prater, but in another world In simple words, Muller thought that music was an absolute art, even in its vocal form 
 
@@ -216,7 +216,7 @@ One’s delight in music always lasts, and I owe the old instrument so much — 
 
 
 
-84 SCHOLAR EXTRAORDINARY 
+[[84]]
 
 who cannot cry, but one does not always want to cry, nor always to smg , if we know we can, it is enough 
 
@@ -226,7 +226,7 @@ It stimulated every aspect and kind of mental activity, passional, ratiocmative,
 
 
 
-FORMATION OF MIND AND CHARACTER 85 
+[[85]] 
 
 cogito, ergo sum in his throbbing being, he also becomes egoistical, and at times even goes over to an egregious puppyism The Romantic Movement glorified the self above everything else, and naturally it arrived at the conviction of the autonomy and irrepeatability of the individual From this it was only one step to the feeling that the most valuable thing foi an individual was experience in itself, rather than the fruit of experience A book like Senancourt’s Oberman would not have been possible without a new attitude towards introspective brooding, even to the point of enjoying nothingness, vide et neant 
 
@@ -240,7 +240,7 @@ If the Romantic Movement enlarged the mind internally by diving or dredging deep
 
 
 
-86 SCHOLAR EXTRAORDINARY 
+[[86]]
 
 space and time they wanted to discover both the Total Man as the product of a flux and the Urmensch as its startmg-pomt 
 
@@ -252,7 +252,7 @@ For the first time since the days of Martin Luther, the ideas of Germany once mo
 
 
 
-FORMATION OF MIND AND CHARACTER 87 
+[[87]] 
 
 
 aesthetic culture By the work of three generations, those of the classical and of the Romantic poets, this world of new ideas had slowly attained to maturity, whereas among the neighbouring nations it had hitherto secured no more than isolated disciples, and only now at length made its way victoriously through all the lands 
@@ -266,7 +266,7 @@ The relation between the Romantic Movement and the historical output of the nine
 
 
 
-88 SCHOLAR EXTRAORDINARY 
+[[88]]
 
 which humanity has reached its present state, and which is continuously carrying it forward, came after the Romantic spirit and was created by it It was not only post hoc , but also propter hoc 
 
@@ -278,7 +278,7 @@ By that time, however, European scholarship had become as elaborate and as artis
 
 
 
-FORMATION OF MIND AND CHARACTER 89 
+[[89]] 
 
 impressively represented in England by Bentley and Porson, was concentrated on books and not on life The monastic scholars did indeed go beyond books, but their interest was to illustrate and justify a static Church and its doctrines Basically, the object of both the secular and clerical scholarship of the pre-Romantic Age was collection of information, supplemented by exegesis In its elegance and economy, in its sheer virtuosity, this scholarship was like the superb singing of the castrato Farmelli — but it did not help men to live, nor was it fecund in renovating the will to live For that a different kind of scholarship was needed, which would be a voyage of discovery in space and time, and would discover ideas and facts to give a new meamng to life and lead to happiness This impulse of scholarship to transform itself came from the Romantic Movement 
 
@@ -290,7 +290,7 @@ In the previous year he had said the same thing in an interview given to a relig
 
 
 
-90 SCHOLAR EXTRAORDINARY 
+[[90]]
 
 It was, again, his sense of historical continuity which made him justify his project of translating Kant’s Critique of Pure Reason , which many of his friends disapproved of as wasting time on a mere translation, by setting down in the preface his feeling of a connexion between this book and the Rig-Veda 
 
@@ -305,15 +305,11 @@ It was this human approach to learning which made a parochial clergyman’s wife
 > I feel almost as if I could burn incense daily to the memory of Professor Max Muller,  
 > To me he lives, and of late in all my spare time I am reading his books, and learning what it is to think of the greatness of the love of the Eternal One , and more than any of the devotional books I have read, Max Muller’s teachings help me to understand what religion means You know that in the rush and whirl of what is called Church life, one does not reach the highest. In my own little room, with Professor Max Muller I spend all my leisure moments It is not his memory, but he himself, who in his strong, brave, beautiful life of searching for Truth, now helps me 
 
-No scholar would have been read in this spirit if he had based his vocation only on the intellect Something beside and beyond that 
+[[91]]
 
+No scholar would have been read in this spirit if he had based his vocation only on the intellect Something beside and beyond that was necessary, indeed by the time he settled at Oxford his intellectual quest had become part of his life of faith. This is revealed in a letter written in Oxford on his twenty-fifth birthday by Muller to Bunsen 
 
+> Twenty-five years of this life he behind me today, and one feels involuntarily in a more earnest and solemn frame of mind at such a moment I look back with gratitude on the first half of my life, which, notwithstanding many sad moments, leaves me with the memory of a happy youth, and what at the same time, after many struggles, has given me a firm faith in a Divine Providence, trust in mankind and peace in myself, and cheerful courage to begin the second half of my life 
 
-FORMATION OF MIND AND CHARACTER 91 
-
-was necessary, indeed by the time he settled at Oxford his intellectual quest had become part of his life of faith This is revealed in a letter written in Oxford on his twenty-fifth birthday by Muller to Bunsen 
-
-Twenty-five years of this life he behind me today, and one feels involuntarily in a more earnest and solemn frame of mind at such a moment I look back with gratitude on the first half of my life, which, notwithstanding many sad moments, leaves me with the memory of a happy youth, and what at the same time, after many struggles, has given me a firm faith in a Divine Providence, trust in mankind and peace in myself, and cheerful courage to begin the second half of my life 
-
-Actually, fifty-two years lay in fiont of him 
+Actually, fifty-two years lay in front of him 
 

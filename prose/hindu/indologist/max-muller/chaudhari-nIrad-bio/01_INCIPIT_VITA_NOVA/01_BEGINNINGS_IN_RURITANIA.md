@@ -11,7 +11,7 @@ Though Muller did not accept any identification of the Schloss
 
 
 
-14 SCHOLAR EXTRAORDINARY 
+[[14]]
 
 of his stoiy with the ducal palace at Dessau, there can be no doubt that the real castle inspired the description But in offering it he was not whipping into it any worked-up romantic feeling The account was truthful and natural from one who as a child saw the castle as the material embodiment of a historical identity — that of the little principality in which he was born and brought up 
 
@@ -23,19 +23,21 @@ This was putting it strongly, but not uncritically. The piety that
 
 
 
-BEGINNINGS IN RURITANIA 15 
+[[15]]
 
 he felt for his native State, and gave expression to in his reminiscences, did not make him blind A great majority of these States had indeed become completely obsolete, but those that were left intact by the Vienna settlement — which with the exception of the four Fice Cities, were all monarchical — had still left in them some of that vitality which had kept them alive down to the nineteenth century m a line of organic succession from the earliest political organization of the German people The Prussiamzers called these princely States feudalists, and in our time the world of these little kingdoms has been romanticized in fiction under the name of Runtama None of these labels were inappropriate But the reality was quite solid, and, though composite, it had been fused into an organic whole 
 
 As seen in the early nineteenth century, this princely order was showing the latest form of the German tribal organization In these courts and kingdoms the power, prestige and influence of the princes did not depend on extent of territory or military strength, but on certain qualities of personality and life The whole community from the prince to the peasant was animated by a coherent Volksgeist (spirit of the people) which made it favourable ground for that kind of cultural creation in which the individual personality mattered 
 
-The Duchy of Anhalt-Dessau was a typical principality of this species To begin with, it had a very old dynasty whose princes held a distinguished record in the whole course of German history. The line was very old — in fact, older than the Habsburgs and the Hohenzollerns, and it could trace an unbroken descent from Albrecht the Bear who became Margrave of Brandenburg in A D 1134 The dynasty was called the Ascaman, which prompted some fanciful genealogists to claim its origin from Ascamus, the son of Aeneas. But even without any eponymous ancestor, many of these dynasties had lasted long enough to have become rooted in the hearts of their people without any reference to their personal merits 
+The Duchy of Anhalt-Dessau was a typical principality of this species To begin with, it had a very old dynasty whose princes held a distinguished record in the whole course of German history. The line was very old — in fact, older than the Habsburgs and the Hohenzollerns, and it could trace an unbroken descent from Albrecht the Bear who became Margrave of Brandenburg in[[1134]]
+
+The dynasty was called the Ascaman, which prompted some fanciful genealogists to claim its origin from Ascamus, the son of Aeneas. But even without any eponymous ancestor, many of these dynasties had lasted long enough to have become rooted in the hearts of their people without any reference to their personal merits 
 
 The princes of Anhalt were, at all events, able and good men They never acquired large territories At their most extensive, their land embraced only the whole of Anhalt, but even this was split up from time to time owing to a curious law of succession which did not recognize primogeniture, but required that at the death of a father each of his sons would get an equal share by means of partition Thus, at the time of Muller’s birth, there weie three duchies of Anhalt — Anhalt-Dessau, Anhalt-Cothen and Anhalt-Bernburg 
 
 
 
-16 SCHOLAR EXTRAORDINARY 
+[[16]]
 
 In actual fact, the importance of the principality as well as of the dynasty was due, not to territory, but to the personality of the princes and their achievements In the Middle Ages the Ascanians took an active part in the conflict between the Teuton and the Slav m eastern Germany At the time of the Reformation the princes of Anhalt were prominent champions of the Protestant cause, and both Luther and Melancthon paid tributes to their zeal, ability and piety During the Thirty Years’ War again they commanded the Protestant armies In the eighteenth century Leopold of Anhalt, famous under the name of the Alte Dessauer (Old Dessauer), was one of the leading generals of Prussia, and fought at Hochstadt, Blenheim and Malplaquet He also organized the armies of Frederick the Great’s father, and afterwards commanded part of Frederick’s forces in the War of Austrian Succession 
 
@@ -61,7 +63,7 @@ Max Muller, who was born and brought up in this Dessau,
 
 
 
-18 SCHOLAR EXTRAORDINARY 
+[[18]]
 
 described the Duke as the most independent sovereign, in Europe He was not accountable to anybody in the exercise of his power, a constitution did not exist, nor was it allowed to be mentioned All appointments were made by him, all salaries were paid from the ducal chest, and whatever existed in the Duchy belonged or seemed to belong to the Duke There was no appeal from him He imposed the taxes, and if money was wanted introduced a new tax But the taxation was low, and, what was more remarkable, if there were wars or distress the taxes were actually remitted The only outside opinion that counted was that of the civil service of the Duchy, which was the custodian of the established traditions of government and in such a strong position that its advice, though not binding, could not be disregarded by the Dukes 
 
@@ -91,7 +93,7 @@ The population of the town was divided into two classes according
 
 
 
-20 SCHOLAR EXTRAORDINARY 
+[[20]]
 
 to Muller — the educated and the uneducated The first, without reckoning the princely families, consisted of the officials, the clergy, the school teachers, doctors, artists and the military officers, and the other class, of tradesmen, mechanics and labourers Trade was almost wholly a Jewish monopoly, and Dessau had its ghetto, for a former Duke who had granted them leave to settle in Dessau without any fear of persecution also insisted that they should live only in certain streets Rut the Jewish quarters in Dessau did not show the squalor which the ghettoes in other German towns did There was no particular prejudice against Jews None the less even as a boy Muller felt that they were only a tolerated community 
 
@@ -121,7 +123,7 @@ Max Muller’s father, Wilhelm Muller (1794-1827), did get his liberal education
 
 
 
-22 SCHOLAR EXTRAORDINARY 
+[[22]]
 
 song cycles are the still well-known and sung Schone Mullenn and the Wmterreise , set to music by Schubert He also wiote poems inspired by the nationalism of the age in its most fiery form These were contained in a collection called Gnechenheder , and in them his love for ancient Greece mingled with his enthusiasm about the Greek war of independence and admiration for the heroes of this war These songs were at one remove an expression of his ai dent German nationalism Under the Mettermch System it could no longer be directly voiced in Germany, so it broke out in phiiHellemsm The Greeks did not forget him When a monument was erected to him at Dessau in 1891 the Greek government of the day sent Pentelic marble for it. 
 
@@ -149,7 +151,7 @@ After the death of her husband Frau Muller lived for some years with her father,
 
 
 
-24 SCHOLAR EXTRAORDINARY 
+[[24]]
 
 compulsory for a civil servant there was a little more All of it was quite inadequate for any kind of comfort If it had not been for the extreme cheapness of living at Dessau Frau Muller would not have been able to feed her children As for clothing, it was always thin and extremely well-cared for In winter there was positive suffering Muller often woke up to find his breath frozen on the bedsheet into a thin layer of ice, and he had to wash after breaking the ice in the ewer, which left only a few drops for use The snow-covered windows did not admit light For breakfast there was only coffee and a roll This hard life made Muller a sufferer from acute headaches throughout his early life, and from their recurrence even later It remained a riddle to Max Muller that his mother was able to bring up her children at all 
 
@@ -181,7 +183,7 @@ At this stage it was a young teacher who first told Max Muller
 
 
 
-26 SCHOLAR EXTRAORDINARY 
+[[26]]
 
 that he ought to be worthy of his father— an idea which had never before entered his mind, for he was not old enough when his father died to have any correct idea of his literary eminence This teacher, a Dr Homcke, had an attractive appearance, though there was a very sad air about him, due to the fact that he knew he was dying of consumption Besides, he was a liberal and was politically persecuted He died soon after Muller had left Dessau, but Homcke’s suggestion that he should remember what he owed to his father, and the feeling of piety that went with it became strong influences on the boy’s life 
 
@@ -210,7 +212,7 @@ The extraordinary thing was that even as a boy he unconsciously assumed a role o
 
 
 
-28 SCHOLAR EXTRAORDINARY 
+[[28]]
 
 My dear good mother — Today for the first time, I have to be far away from you on your birthday, and you can fancy how sorry I am I think it grieves you too, little mother, for I know your love for me Oh, how I long to be with you, only for a moment, only to press you in my arms, only to tell you how I love you but it cannot be Your birthday is always doubly dear to me, first because it is your birthday, and then because it was the first day that you roused yourself again from your sorrow, to which just in these weeks of the year you gave way more than usually [Wilhelm Muller died on October i, and her birthday was October 12 ] You were right to grieve, and it would not have been proper to try to console and amuse you You must have sorrowed this year more than usual, as the birthday of our good grandfather was this week [The first birthday after his death in 1835 ] But I will not write more about this, it will but renew your sorrow I will only say that God has replaced something of what you have lost, in giving you two beings who love you as no others do You best know whom I mean Your Max 
 
@@ -222,7 +224,7 @@ The emphasis in teaching was almost overwhelmingly on the
 
 
 
-BEGINNINGS IN RURITANIA 29 
+[[29]]
 
 classics, and the grounding given in both Greek and Latin was very thorough In the higher forms the boys were expected to speak Latin fluently, and Muller when he left school did so easily Modern languages, mathematics and science were looked upon as poor relations, and the boys, who were aware of the relative prestige of the subjects, often absented themselves from the science classes 
 
@@ -236,7 +238,7 @@ Professor Cams was himself very musical, and his wife sang
 
 
 
-30 SCHOLAR EXTRAORDINARY 
+[[30]]
 
 beautifully His son, Victor, played the violin, and Max the piano and also sang Many celebrities of the musical world came to his house One evening Muller got the autographs of five of them on a slip of paper which he kept till the end of his life They were Mendelssohn, Liszt, Kalliwoda (violinist, composer, conductor), David (violist), Hiller (conductor and composer) 
 
@@ -268,7 +270,7 @@ Those who heard were amazed, and all paid compliments to the hero of the day. Me
 
 
 
-32 SCHOLAR EXTRAORDINARY 
+[[32]]
 
 At Leipzig Muller also saw another musical genius, soon to be recognized as great He was Robert Schumann, then poor and striving for recognition, and engaged in an almost public struggle with the father of Clara Wieck, whom he loved and wanted to marry Max Muller did not see much of Schumann in later life, and he recollected him only as a young man generally sitting in a comer of the orchestra listening to one of his works being performed under Mendelssohn’s direction He remembered his very large head and his drooping eyes, and that he smiled but rarely Max Muller completed his school education early in 1841, but for his final or abitunenten examination he had to go to Zerbst in Anhalt, so that if he passed he might qualify for a scholarship from Dessau, without which he could hardly go to university He passed and got his scholarship , it was only £ 6 , but it was an important help to him Before the examination his headmaster, Dr Nobbe, wrote to his mother ‘I rejoice that I can see him leave this school with testimonials of moral excellence not often found in one of his years, possessed of knowledge first rate in more than one subject , and with intellectual capacities excellent throughout May this young mind develop more and more, and may the fruits of his labours be hereafter a comfort to his mother for the sorrows and cares of the past ’ After Muller’s death in 1900, at a gathering held in the memory of the old boys of the Nicolai School, the Director ended his reference to him with the words £ He was without any doubt, next to Leibmtz, one of the greatest of our pupils ’ 
 
@@ -294,7 +296,7 @@ The growth of his mind till it was ripe enough to realize its potential, and of 
 
 
 
-34 SCHOLAR EXTRAORDINARY 
+[[34]]
 
 organizing nor supervising in any way, they were in fact part of the private life of each student, and the most noticeable feature was their freedom In regard to student discipline, the German universities of those days differed radically from the German schools of the same period They gave as much freedom as the schools imposed discipline and supervised conduct So young German university students, when they moved from the strict control by the schools to the unrestricted freedom of the universities, fully exercised and thoroughly enjoyed their freedom They gave immediate expression to it in their pranks which as Max Muller said later, would have brought them into conflict with the university authorities if indulged m at Oxford or Cambridge 
 
@@ -306,7 +308,7 @@ When Muller went to the duelling ground to defend the reputa-
 
 
 
-BEGINNINGS IN RURITANIA 35 
+[[35]]
 
 tion of his Professor of Greek, there were thirty or forty other couples ready to fight their duels, and there was a throng of spectators— of course, students— gaily attired in their club uniforms, with beer barrels pushed up on one side, and the surgeon with his instruments, waiting Many of the combatants came on horseback or even in their carnages 
 
@@ -318,7 +320,7 @@ Of social life in the oidinary sense of the word Muller had very little during h
 
 
 
-36 SCHOLAR EXTRAORDINARY 
+[[36]]
 
 kept aloof while his older friends talked of their plans pour culbuter toute I’Europe, and he followed the rodomontades with the shrewd bright face of a squirrel 
 

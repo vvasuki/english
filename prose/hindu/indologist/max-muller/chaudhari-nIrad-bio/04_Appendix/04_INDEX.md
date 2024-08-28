@@ -45,7 +45,7 @@ Bismarck, Prince M in on, 242, 244 Blavatsky, Mme (Theosophist), 327 ff Blennerh
 
 221 ff Boer War 
 
-M in on 252 ff Boehtlmgk, Professor O 264 
+M in on 252 ff Boehtlmgk, Professor[[264]]
 
 Bonaparte, Prince Lucien, 62 
 
@@ -425,7 +425,9 @@ Palgrave, F T, ioo~oi, 267
 
 Pans life, 45 ff Pater, Walter, 85, 210 Patmore, Co\ entry, 152 Pattison, Mark, 153, 
 
-2I 3 ff 
+2[[3]]
+
+ff 
 
 Philmdus, pseudonym of MM, 183 
 

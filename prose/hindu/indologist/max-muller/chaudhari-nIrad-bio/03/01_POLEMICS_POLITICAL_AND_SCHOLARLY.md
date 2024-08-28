@@ -39,7 +39,7 @@ In England feeling ran high against Germany The Queen herself was pro-German, bu
 
 
 
-POLEMICS POLITICAL AND SCHOLARLY 241 
+[[241]]
 
 thought he would explain the German case, and try to remove the grave misunderstanding between the German and the English people 
 
@@ -55,7 +55,7 @@ The challenge was at once taken up by a Danish historian, A D. Jorgensen, who wa
 
 
 
-242 SCHOLAR EXTRAORDINARY 
+[[242]]
 
 he added an explanatory note ‘The following reply to Professor Max Muller’s article in the May number of this Review is published at the desire of an exalted Personage in this country, interested in the Danish side of the question, who considers that Professor Max Muller’s views are incorrect and inconsistent with historic truth 9 The Personage could only have been Alexandra, Princess of Wales, or her husband the future Edward VII Even this was not the end of the matter In November 1915, both the articles were republished as a pamphlet in London, with a preface by K Lmdblom It was a piece of war propaganda against Germany, but the moral drawn in the preface was incontrovertible 
 
@@ -69,8 +69,7 @@ There can be no doubt [he wrote] that without the initiative taken by Duke Frede
 
 
 
-POLEMICS POLITICAL AND SCHOLARLY 243 
-
+[[243]]
 
 war between Prussia and Austria, and the subsequent war between Germany and France, would never have taken place, at all events not under the very peculiar circumstances in which they actually took place The name of Zundholzchen , lucifer match, given at the time to Schleswig-Holstein, has proved very true, though the conflagration which it caused has been far greater than could ha\ e been foreseen at the time 
 
@@ -104,7 +103,9 @@ On July 17, 1870, even before the formal declaration of war by France, he wrote 
 
 
 
-POLEMICS POLITICAL AND SCHOLARLY 245 He wrote to Stanley 
+[[245]]
+
+He wrote to Stanley 
 
 My heart is too full to say anything about this terrible war I believe it is a cup that could not pass France cannot break a united and strong Germany , and the reckless gambler who usurps the throne of France took advantage of this national jealousy to save himself from his inevitable end for a few years longer But the misery it bangs to thousands of happy homes passes all description \* This war can only end either in the destruction of Germany, or in a revenge without parallel m history 
 
@@ -116,7 +117,7 @@ Even then his mood was not wholly one of triumph The following passage from bus 
 
 
 
-246 SCHOLAR EXTRAORDINARY 
+[[246]]
 
 Sedan, on August 30, reveal the mingling of nationalism and humamtarianism in him T cannot tell you how this war crushes me I sometimes feel as I could bear it no longer and must be off What savages we are in spite of all these centuries 1 But surely the Teutonic race is better than the Latin and the Slavonic, and the Protestants better Christians than the Romans , and the Germanic cause is surely thoroughly righteous, and the French thoroughly unrighteous 5 
 
@@ -132,7 +133,7 @@ For the sake of the mental sanity of the German people he wished France to remai
 
 
 
-POLEMICS POLITICAL AND SCHOLARLY 247 
+[[247]]
 
 Conway, who was reporting the war T doubt whether it is w lse to weaken France at the very moment that Germany becomes so much more powerful As to making France harmless, that can never be done, and I doubt whether for the sake of Germany it is desirable \* 
 
@@ -146,7 +147,7 @@ The British attitude began to be reversed after Sedan At the beginning of this c
 
 
 
-248 SCHOLAR EXTRAORDINARY 
+[[248]]
 
 be intolerant of the successes, especially military, of other nations Soon the disapproval of Prussia became quite vocal The idea gamed ground that France, instead of being the aggressor without qualification, might have been manoeuvred into that role by the astuteness of Bismaick, for whom there was great dislike in English political circles This found its first public and very strong expression in a letter to The Times written by Sir Harry Verney and published on August 29, 1870 In it the writer accused Bismarck of complicity in a design put forward by France to partition Holland, Belgium and Switzerland between the two as a quid pro quo for a French acceptance of the unity of Germany under Prussian hegemony Sir Harry Verney charged Prussia and Bismarck with entertaining this scheme, and said that 'an English Minister who could dishonour his country by listening for a moment to such proposals, would be driven from office by an indignant people\* 
 
@@ -156,7 +157,7 @@ But Max Muller’s task became more difficult when Prussia disclosed the obvious
 
 
 
-POLEMICS POLITICAL AND SCHOLARLY 249 
+[[249]]
 
 He also knew, however, that there was more in the German claim on Alsace-Lorraine than military security He informed Gladstone that these provinces once belonged to Germany, and that had never been forgotten by the German people But he added that any offensive war to recover the lost patrimony was impossible. Only the action of France had provided the opportunity He now supported the claim, and in his letter even w T ent to the length of saying that hf there are people in the annexed portions of Alsace and Lorraine who cannot bear the idea of belonging to Germany, surely it is not too much to expect from their patriotism that they should follow the example of thousands of German families which emigrated to Philadelphia when Alsace was annexed to France’ 
 
@@ -168,7 +169,7 @@ After Max Muller’s death, Mrs Max Muller in her biography repeated all this, a
 
 
 
-250 SCHOLAR EXTRAORDINARY 
+[[250]]
 
 time was warning England against the similar designs of Germany against England, he hoped that these warnings would be heeded 
 
@@ -184,7 +185,7 @@ Gladstone at once replied that the greatest mistakes of the statesmen of his tim
 
 
 
-POLEMICS POLITICAL AND SCHOLARLY 251 
+[[251]]
 
 be prescient on the practical plane He threw in the hint that hostile relations between Germany and England would force the former to found a formidable navy As Muller admitted, the discussion accomplished nothing, but the participants certainly parted fnends 
 
@@ -200,7 +201,7 @@ If this fundamental aspiration of Germany, which was consistent with her new pow
 
 
 
-252 SCHOLAR EXTRAORDINARY 
+[[252]]
 
 power in Europe in check It has now to be recognized that the Franco-Prussian War was the watershed across which the British people moved from their opposition to one Continental Power to their opposition to another The causes of the First World War, and a fortiori of the Second, have to be traced back to the situation created by the war between Germany and France in 1870 So Max Muller’s anxieties about the consequences of the Anglo-German misunderstanding that was arising out of this war were fully justified 
 
@@ -212,7 +213,7 @@ A few days after the war had begun, on October 29, he wrote again to his son ‘
 
 
 
-POLEMICS POLITICAL AND SCHOLARLY 253 
+[[253]]
 
 formerly, but not now They do little good, but they can prevent mischief ’ 
 
@@ -254,8 +255,7 @@ What Mommsen regarded as unconvincing was the legalistic justification of the wa
 
 
 
-POLEMICS POLITICAL AND SCHOLARLY 255 
-
+[[255]]
 
 Nevertheless, Max Muller clung to his idea till the very end of his life in spite of all the signs against him In his article in the Deutsche Revue he wrote ‘Germans, instead of looking for true blood relations and allies for the future in England and America, have sought for them in France and Russia They may look for a long time I hope they will discover, before it is too late, that blood is thicker than ink, and that the Saxons of Germany, England and America are the true, manly and faithful allies in all struggles for freedom in the future as in the past 5 
 
@@ -271,7 +271,7 @@ All that can be said in explanation of the intellectual who involves himself wit
 
 
 
-256 SCHOLAR EXTRAORDINARY 
+[[256]]
 
 m their field Max Muller himself wrote that he had considered the objections of his critics but had been confirmed by them in his conclusions At all events he said to some of his distinguished opponents, as he did to Mommsen ‘Let us agree to differ 5 So he wrote to Romanes in 1891 T believe we both care far more for what is right, than for who is right Facts and correct deductions from facts, are all we ought to care for, who discovered them and who made them is of very little consequence Yet I know from experience that there are but few who would be so completely above all personal feelings as you have shown yourself to be ’ 
 
@@ -283,8 +283,7 @@ But the immediate occasion of this disagreeable controversy was furnished by a v
 
 
 
-POLEMICS POLITICAL AND SCHOLARLY 257 
-
+[[257]]
 
 English Language , could not, according to Muller, account for human speech 
 
@@ -330,7 +329,7 @@ George Darwin was not very straightforward in defending his father in the Contem
 
 
 
-POLEMICS POLITICAL AND SCHOLARLY 259 
+[[259]]
 
 deceptive title of ‘Professor Whitney on the Origin of Language ', and leaned heavily on the American scholar The article was substantially a dishing out in England of Whitney's attacks on Max Muller in America So Muller did not read the piece until a friend told him about it 
 
@@ -350,7 +349,7 @@ Publicly Whitney took no notice of the proposal for arbitration It is impossible
 
 
 
-260 SCHOLAR EXTRAORDINARY 
+[[260]]
 
 which Conway did But Whitney was not willing, and Conway was not able to discover exactly why Nothing further came out of his efforts 
 
@@ -368,8 +367,7 @@ I feel very grateful for what you said about Whitney I do not know whether you h
 
 
 
-POLEMICS POLITICAL AND SCHOLARLY 261 
-
+[[261]]
 
 Whitney died in 1894, and Max Muller had a respite for a few years before his own death 
 
@@ -393,7 +391,7 @@ I sympathize with you most sincerely in what you say — my doubt is whether it 
 
 
 
-262 SCHOLAR EXTRAORDINARY 
+[[262]]
 
 which the lapse of years has very much thrown into oblivion Professor Whitney was the mam leader in those attacks, and since he passed away we have heard hardly any allusion to them I hardly think it is right to consider the edition of Rig-Veda your husband’s pre-eminent work, surely such books as his History of Ancient Sanskrit Literature and other similar, works show more clearly his real genius and original powers The text of the 1 RigVeda has been kept so religiously in the MSS that it was a very easy task to edit it The Commentary which fills so much of Max Muller’s edition and which I and many Sanskntists prize so highly, was an especial object of attack to Whitney and most of the representatives of his school Max Muller proved that he thoroughly understood that difficult commentary by the masterly way m which he edited alone the whole of Vol I and the great part of Vol II After that he left part of the labour of collation etc to his younger co-adjutors, while he himself thus gained some leisure for researches into other fields of Sanskrit literature He was doing far better service to the Sanskrit cause by interesting such a wide circle of readers by his enthusiastic lectures and disquisitions, expressed in his singularly beautiful English style, than he would have done if he had spent the years in toiling alone to complete the text of Sayana’s Commentary You will thus see that I look on the great edition of the Rig-Veda as only one part of the wide field of Max Muller’s energy, and by no means the part which showed his powers at their highest point 
 
@@ -403,7 +401,7 @@ Nothing could be more sensible, if Max Muller’s work on the Rig-Veda were only
 
 
 
-POLEMICS POLITICAL AND SCHOLARLY 263 
+[[263]]
 
 He wrote again when the second volume was also sent to him 'By successfully embarking on such an arduous undertaking, you have done to the Hindus an inestimable benefit, supplying them with a correct and superb edition of their Holy scriptures Accept therefore my most grateful and sincere thanks, which, in common with my countrymen, I owe to you 3 
 
@@ -417,7 +415,7 @@ The Members of the India Council, however, took a different view from that taken
 
 
 
-264 SCHOLAR EXTRAORDINARY 
+[[264]]
 
 India Company While the Directors on the advice of the greatest Sanskrit scholar of the time, Professor H H Wilson, their illustrious Librarian, declared that ‘the publication of so important and interesting a work as the editio pnnceps of the RigVeda was in a peculiar manner deserving of the patronage of the East India Company, connected as it is with the early religion, history, and language of the great body of their Indian subjects’, the Literary Committee of the India Council, acting on somewhat different advice, declined my offer of publishing a new edition of the RigVeda , though a strong desire for it had been expressed by scholars both in India and Europe, and though my gratuitous services were placed at their disposal 
 

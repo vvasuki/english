@@ -42,7 +42,7 @@ The Sanskrit Title-page of Volume I of the First Edition of the Rig-Veda edited 
 
 
 
-THE RIG-VEDA 125 
+THE RIG-[[125]]
 
 looked upon at best as curious, but was considered by most people as useless and tedious, if not absurd Then he drew the contrast 
 
@@ -54,7 +54,7 @@ The Romantic Drang nach Osten , with India as its particular goal, refurbished t
 
 
 
-126 SCHOLAR EXTRAORDINARY 
+[[126]]
 
 JJber die Sprache und Weisheit der Indier (On the Language and Wisdom of the Hindus), which he published in 1808, he issued what might be called the manifesto of a new Renaissance for Europe from India 
 
@@ -91,7 +91,7 @@ Goethe wrote this when he was getting tired of the intellectual Charlotte von St
 
 
 
-128 SCHOLAR EXTRAORDINARY 
+[[128]]
 
 Goethe's admiration of Sakuntala is however just symbolic, and it is referred to only because of his great name He was not in the mam stream of Orientalism in Germany, literary or speculative He was not interested either in Hindu religion or in Hindu philosophy, and felt a kinship solely with such Sanskrit poetry as he could read in translation Hindu art repelled him, the worshipper of the Apollo Belvedere, and he wrote ‘The tiresome trunks of elephants, the coiling nests of crawling snakes, the age-old tortoise m its cosmic swamp, those kingly heads on a single trunk — such things will turn us mad 5 And he cried T should like to live in India, if only there had been no stone-masons there 9 
 
@@ -119,7 +119,7 @@ The German historical reconstruction of India was not quite this castle in the v
 
 
 
-130 SCHOLAR EXTRAORDINARY 
+[[130]]
 
 chauvinism of our day, and the spiritual degeneracy of the contemporary West 
 
@@ -147,7 +147,7 @@ The third difference between Germany and Britain in respect of
 
 
 
-132 SCHOLAR EXTRAORDINARY 
+[[132]]
 
 Hindu civilization was that the English people did not accept it as an element in their mental formation and their cultural activity This result could never be expected from them when they were not ready to accept the Hindu heritage even for governing India There were a number of basic reasons for this rejection, the most important being their first-hand knowledge of living Hindus and of their ways The British in India found them to be so crude and ignorant and even degenerate that they could hardly believe that they had been highly civilized at any time Secondly, the positive and active ideology for the government of India, which developed after Warren Hastings and which admitted any possibility of progress on the part of the Indian people, was based on three schools of English political thinking Utilitarianism, Evangelism and Whig Liberalism All these were hostile to the beliefs and customs of the Hindus which they regarded as stagnant and obscurantist Lastly, the idea of ancient India which the British Orientalists were putting forward appeared to all progressive Englishmen as archaistic and retrogressive So all those who represented the progressive or liberal side of British rule in India discounted the value, and partly even the existence, of the Hindu civilization No one was more forthright in holding and expressing such a view than James Mill, the Utilitarian, who held an influential position in India House in London In his History of British India , which was published in 1817 and immediately became a classic, he attacked the idea that the Hindus were in any sense highly civilized at any period The whole of his second book is a coldly contemptuous dismissal and denunciation of the Hindus as creators and products of a high culture In later editions of the book H H Wilson tried to correct Mill’s bias in running footnotes disputing all his generalizations Even so Max Muller thought that the book was responsible for some of the greatest misfortunes that had happened to India Every aspect of Hindu life and culture was taken up by Mill and described from a standpoint opposite to that of the Orientalists, and the garment made by them was turned inside out. It was in demolishing their idea of Sanskrit literature that Mill was most ruthless Among peoples who were just entering a civilized state, Mill said, all literary expression was in verse The literature of the Hindus had always remained in this first state Mill more specifically made both the book which established the idea of a great literature in Sanskrit, and the man who was respon- 
 
@@ -168,7 +168,7 @@ The disparaging thesis, promulgated by two men who were regarded as the greatest
 
 
 
-134 SCHOLAR EXTRAORDINARY 
+[[134]]
 
 Of course, in spite of the detractors, the English Orientalists carried on their researches as scholars and their propaganda as apologists But their discoveries and views as well as their defence built up only a counter-thesis for those who were seriously interested m ancient India As for the educated British public, at their most understanding and sympathetic they recognized ancient Indian culture as a civilization in being at one time, but which was also for them a thing apart The majority were indifferent, except when they looked at things Indian as curiosities Outside a circle of more or less charlatanesque dabblers and pedlars of Indian spirituality, there was no disposition to assign any universal human value to the religion, philosophy, literature and art of the Hindus 
 
@@ -194,7 +194,7 @@ But in actual fact, Muller’s study of Sanskrit literature did not begin at its
 
 
 
-136 SCHOLAR EXTRAORDINARY 
+[[136]]
 
 to begin, namely, with Homer, Herodotus and Thucydides, and not with Anacreontic poetry or Neo-Platomst philosophy But the Orientalists concerned with ancient India had to begin with later books, like the code of Manu , the Gita , the Hitopadesa , Sakuntala and such works in classical Sanskrit At that stage of Sanskntic studies no authentic text of the Vedas was available, nor was Yedic Sanskrit known 
 
@@ -210,7 +210,7 @@ It was a misfortune [he observed] that all early publications of Sanskrit texts 
 
 
 
-THE RIGVEDA 137 
+[[137]]
 
 human mind is capable of, it is there that we can learn what man is, 
 
@@ -226,7 +226,7 @@ At this time the study of the Vedic literature was in a very rudimentary state T
 
 
 
-138 SCHOLAR EXTRAORDINARY 
+[[138]]
 
 supplemented by the manuscripts in the Bibliotheque Royale that Burnouf lectured on the Rig-Veda But he never published any extensive work on it His incidental comments are embodied in his commentary on the Yagna 
 
@@ -296,7 +296,7 @@ The second volume of the Rig-Veda was published early in 1854, and in its prefac
 
 
 
-142 SCHOLAR EXTRAORDINARY 
+[[142]]
 
 acknowledged Aufrecht’s help for the first time in these words Tn the latter portion of this volume I have been able to avail myself of the assistance and active co-operation of my learned friend Dr Aufrecht of Berlin, and the benefit hence derived cannot be too highly valued 5 
 
@@ -332,7 +332,7 @@ The Directors agreed to his petition, which was a great sui prise to Muller This
 
 
 
-144 SCHOLAR EXTRAORDINARY 
+[[144]]
 
 gave him the glad news that he had got the prize, which was 1,200 francs 
 
@@ -356,7 +356,7 @@ He even made use of social occasions to promote knowledge and respect for Vedic 
 
 
 
-146 SCHOLAR EXTRAORDINARY 
+[[146]]
 
 Max Muller was first called on to utter something in the phonograph We presently heard issuing from it these sounds Agmm tie purohitam Yajnasya dev am ntvtjam — hotaram ratnadhatamam There was a burst of merriment when these queer sounds came from the machine, but a deep silence when Max Muller explained that we had heard words from the oldest hymn in the world — the first (if I remember rightly\*) in the Vedas ‘Agm I worship — the chief priest of the sacrifice — the divine priest — the invoker — conferring great wealth \* 
 

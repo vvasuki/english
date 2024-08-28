@@ -14,7 +14,7 @@ Let us take such a sentence as ‘Generalization is always a new influx of divin
 
 
 
-178 SCHOLAR EXTRAORDINARY 
+[[178]]
 
 As was natural, this bent found its concentrated application in his basic intellectual interest — human thought, its origin and development Actually, as it progressed, his intellectual activity became more and more concerned with what I have called the prehistory of the human mind, on which he showed himself to be a pioneer This was pointed out in a French book, UOngin de la Pensee et de la Parole , published from Pans in 1900, a few months before his death and recommended by him in his autobiography ‘as giving a clear and complete abstract of my writings’ \* 
 
@@ -46,7 +46,7 @@ These roused not mere interest, but enthusiasm After reading the 1861 lectures w
 
 
 
-180 SCHOLAR EXTRAORDINARY 
+[[180]]
 
 Liddell wrote to Muller on November 16 , x 86 i Tt is humiliating to learn that the lectures have been delivered to the heedless ears of Oxford hearers 5 He was unfair to Max Muller’s audience, for the hearers, so far from being heedless, remembered their thrill even as old men Cowell, who went to Calcutta as principal of the Sanskrit College and afterwards became Professor of Sanskrit at Cambridge, was then an undergraduate He wrote: ‘The lecture was a written one, and was delivered to a large and attentive audience, and to most of those present, as well as myself, it was an introduction to the new world of Comparative Philology It was the first of a series of such lectures, all of which I attended ’ 
 
@@ -82,7 +82,7 @@ At the end of 1854 Macaulay invited Max Muller to his rooms in the Albany to dis
 
 
 
-182 SCHOLAR EXTRAORDINARY 
+[[182]]
 
 and went to the great man armed with facts and arguments to counter Macaulay’s As he wrote in his autobiography at the end of his life, he went back to Oxford a sadder, and — he hoped — a wiser man, for Macaulay never gave him a chance to put in a word Macaulay said that he knew nothing of Indian languages and literature, and wanted to know all that Muller had to say about the advantages to be derived by young civilians from a study of Sanskrit He put some questions, but before Muller had a chance to answer any one of them, he began to relate his experiences in India, ending up with the usual diatribes against the natives of India on the score of their untruthfulness and untrustworthmess in a court of law 
 
@@ -148,7 +148,7 @@ Three more expositions of Comparative Philology given by Muller in the next few 
 
 
 
-186 SCHOLAR EXTRAORDINARY 
+[[186]]
 
 first of these was the Rede Lecture at Cambridge in 1868 He was mvited in January to deliver it, and at the end of May went with his wife to Cambridge It was proposed to confer the degree of LL D on him on this occasion, and also on the Arabic scholar Dr Wright and the American hydrographer Commodore Maury 
 
@@ -178,7 +178,7 @@ This appeal was created by Max Muller in the first instance by the clarity of hi
 
 
 
-188 SCHOLAR EXTRAORDINARY 
+[[188]]
 
 and that obscurity arises in all cases from slovenly thinking and lazy writing J 
 
@@ -210,7 +210,7 @@ Turning now to Max Muller’s views and theories about language, Lt is not easy 
 
 
 
-190 SCHOLAR EXTRAORDINARY 
+[[190]]
 
 The distinction which he kept in view when he called linguistics one of the physical sciences was a different one, and in his view more basic This was the distinction which, according to him, existed between the physical or natural sciences and the historical or moral sciences The former, he said, dealt with the creations of God (by which he meant what we would call creations of Nature) and the latter with the creations of man, such as his tools, crafts, arts or literature In support of this view he first of all pointed out that the science of language had developed in three stages, as all the physical sciences had These were, first, the empirical stage concerned with the collection and examination of facts, then the classificatory stage in which the inter-relation of the facts was studied, and the third was the theoretical stage, which he also called the metaphysical, in which the student searched for the origin and meaning of all the facts which the classificatory stage had shown to belong to one or many systems In the development of all the physical sciences these stages followed one another in a chronological order, except for rare departures from the sequence The science of language, too, was developing in that order 
 
@@ -238,7 +238,7 @@ The history of language [he wrote] opens a vista which makes one feel almost gid
 
 
 
-192 SCHOLAR EXTRAORDINARY 
+[[192]]
 
 Max Muller stated quite definitely that there was no means of solving the problem of language historically , that is to say, by describing what happened in a certain locality and at a certain time, because history did not begin till long after mankind had acquired language Nothing, he declared, would be more interesting than to be able to say from historical records by what exact process man began to use words, and to be rid for ever of all the theories about the origin of language But this knowledge was denied to historians and scientists Indeed, the problem appeared so insoluble in his time that the Societe de Linguistique of Paris, founded shortly before he delivered his first lectures and composed of the most distinguished scholars of France, laid down in its rules that it would not receive any communication on the question of the origin of languages 
 
@@ -264,7 +264,7 @@ By no effort of understanding, by no stretch of imagination, can I explain to my
 
 
 
-194 SCHOLAR EXTRAORDINARY 
+[[194]]
 
 which animals possess, even if we granted them millions of years for that purpose If anything has a right to the name of specific difference, it is language, as we find it in man, and in man only Even if we removed the name of specific difference from our philosophic dictionaries, I should still hold that nothing deserves the name of man except what is able to speak 
 
@@ -294,7 +294,7 @@ Considering language in its next stage, that is, after it had come into existenc
 
 
 
-196 SCHOLAR EXTRAORDINARY 
+[[196]]
 
 explaining the growth of language in contradistinction to the history of language ‘We must distinguish/ he said, ‘between historical change and natural growth Art, science, philosophy, and religion all have a history, language, or any other production of nature, admits only of growth ’ But the term ‘growth 5 , he explained, must be taken, if it is applied to language, in a sense which is wholly different from what it has when employed in connexion with the natural unfolding of organic beings The idea of growth in respect of language was like the idea of growth of the crust of the earth, 1 e , a process comparable to geological formations, by means of which continuous new combinations were formed out of given elements without the control of free agents It was not surprising therefore that he should apply the term stratification to the process of linguistic evolution 
 
@@ -325,7 +325,7 @@ Max Muller described this process of continuous break-up and reformation of lang
 
 
 
-198 SCHOLAR EXTRAORDINARY 
+[[198]]
 
 his first series of lectures I shall give it almost wholly in his words Literary dialects pay for their temporary greatness by inevitable decay and they are haunted by their own ghost They are like stagnant lakes at the side of great rivers They form reservoirs of what was once living and running speech, but they are no longer carried on by the mam current At times it may seem as if the whole stream of language was absorbed by these lakes, and we can hardly trace the small rivulets which run on in the mam bed 
 
@@ -353,7 +353,7 @@ In the classificatory stage of the science Max Muller's writings not only establ
 
 
 
-200 SCHOLAR EXTRAORDINARY 
+[[200]]
 
 a common Aryan family and culture, from which a number of related societies and cultures had evolved It had important social, cultural and even political consequences in many countries So its character and validity will have to be examined later. 
 
