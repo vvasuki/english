@@ -1031,7 +1031,7 @@ the perfect manhood of the Aryan mind
 On the other hand, the conviction that there must be a human 
 motive even behind the most out-of-the-way inquiry into the past 
 was also asserted by him in connexion with his edition of the Rig- 
-Veda As early as 1864 he wrote to his wife 
+Veda As early as 1864 he wrote to his wife -
 
 I feel convinced, though I shall not live to see, that this edition of mine 
 and the translation of the Veda will hereafter tell to a great extent on 
