@@ -134,3 +134,32 @@ Among all my faces, I love my fire face the most. I am Kalasamkarshini, for time
 > Why do you wear fearsome forms.
 
 Fear is your projection. I eat fear. I also eat love and envy. I am this volatile dynamo ready to burst into new galaxies and new realities.
+
+### V. Kali's Yoni
+> What is your power?
+
+My vulva is my power. When I was Krishna, I told Arjuna, my vulva is the expansive Brahman. Old man Vyasa later said, the brahman is also called yoni. When I became Kamakhya, I reduced my being into my vulva. And then I revealed Yoni Tantra.
+
+> But what is so powerful about this?
+
+This is the power of the visible that is yet invisible. This is the power of the one in the triad. 
+
+I am the Nirodhini, the power that suspends the yogic awakening. I divide myself into the triad and become the mistress of eros, savoring the essence of being, wearing the rosary of vulva. 
+
+I am Tripura, I am pure consciousness in its singularity when the triad merges. I am myself the one being seen or the seer and the seeing.
+
+> But again, what is this power?
+
+This is the power of attraction. This is gravity. The force that keeps the particles strung together is the same force that binds us together, gives us the sense of love and attraction. I am felt within and without.
+
+> What is the purpose of this power?
+
+Power does not have any purpose. Power itself is the purpose. 
+
+As the power of speech, I express myself in threefold articulation. 
+
+As the power of mantras, I become Trayi, and as the power of the expressed forms, I become the first three lines, a mere articulation of volition in the field of unsurpassable aham.
+
+> Why is this aham so central to you?
+
+This aham is my internal sign. You carry your external sign, and you fear castration. I fear not, for the aham cannot be castrated. Even when you invoke your emptiness, you only affirm your own inner sign. Even the void cannot erase your being.
