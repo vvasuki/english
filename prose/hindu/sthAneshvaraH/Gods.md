@@ -56,3 +56,81 @@ I think we have fundamentally mistaken the concept. Let me draw two Ven diagrams
 But I know, I am not fully free. Does not this mean that even the freedom of Kali is relational? But what is the problem there? We are floating and surfacing in the dance of becoming, experiencing new modes of freedom and determination that are co-determined, not just shaped by the categories of freedom and determination but also by my own actions within the collective that stir new ripples in the totality. And now I can see my fury as her fury and my arousal, her arousal.
 
 But what is my last word for those who are convinced that God has determined all the events in their life? Nothing. For God has already determined their fate and made their heart so tight, they are not willing to open it for any amount of reasoning.
+
+## kAlI monologues
+
+### I. Kali Monologues  
+Kali laughs and dances in the cremation ground.  
+
+> Why would you laugh and dance on my misery? Don't you feel pain?  
+> May be not for my pain, but don't you have some modesty to laugh on someone's misery?
+
+I laugh and dance because you have come back to me. The dichotomy is dissolved. You are not you any more. You are me having this monologue. 
+
+> But if you are the one talking, are not you also the one feeling pain. Why is there suffering?  
+> You once scared Siddhartha with your fangs,  
+> and today you scare me with your cutting sword.  
+> Your words are the sword. 
+
+You feel pain and pleasure because you are finite. I feel pure pleasure, no matter what happens. I do not have the nerves to translate some sensation as pain and the others as pleasure. I am the totality experiencing all the experiences as blissful. 
+
+> But if you are the ocean, how can you deny my droplet being. I exist as a tiny drop. In the finite, there just is pain. 
+
+Ergo my task to absorb you. You in me need to dissolve. My seven tongues will taste your being. And you will feel my bliss.
+
+### II. Kali's Meal
+> What do you eat?
+
+I eat you. But mostly I eat time. You are just a configuration of time. Everything I weave, I weave with the fabric of time.
+
+> After all my love, the best you can say is how you eat me? Is there nothing positive for you to say?
+
+I eat you because I love you. Eating is loving. When I devour, you become me.
+
+> But you also said I am Bhairava. I know I am immortal. I have never sensed death.
+
+Yes, you are Bhairava. And so were they whom I ate before and I made a garland of their heads. Look at my garland of heads. All the Bhiaravas from the past. 
+
+And do not take your experience of eternity as some real eternity. Every time I breathe life inside the net of time, I give my Bhairavas the sense of eternity. 
+
+I give you the sense of love so you love me. Even when you love something else, you still love me. It matters not what you love, for all loves are just about me. And even hatred. 
+
+All you feel is within me, like an unborn child. I am Chamundeshwari. I carry the heads, including yours.
+
+### III. Kāli's Attire
+> I find your fashion perplexing.  
+
+I have no fashion of my own. I wear what you give. 
+
+> But since I have seen you, you run wild naked. And sometimes you wear some skins.
+
+Yes, I am naked. For I have no shame. I do not feel shame. When I want to feel shame, I become you.+++(5)+++ Only when I am you I can feel shame, and all sorts of emotions. 
+
+And I wear skins. Sometime your skin, and other times, whatever comes, tiger or bear. I don't just wear their skin; I also wear their faces. They are not my masks, for they are not masking anything. 
+
+I am all empty. For I have no face. I love to remain a faceless woman. Always invisible. But when I wear a face, I wear you, I wear all my creation.
+
+### IV. The Faces of Kali 
+> Why do you wear the faces of human, rhinoceros, lion, fox, monkey, camel, bear, eagle, elephant, crocodile, and horse.
+
+With my human face, I am enchanting the world. I am mahamaya. It is under my hypnotic spell that Narayana sleeps like a baby. With my human face, I excel in the game of deception. 
+
+With my rhino face, I carry a display horn or two. My horns are not real. I simulate reality. 
+
+As lion, I am ferocious. 
+
+As a fox, I resonate the mantra and herald death. 
+
+As a monkey, I jump from one branch to the next, and as a camel, I savor my own blood. 
+
+As a bear, I sleep, and as an elephant, I smell. 
+
+As a croc and a horse, I am virile.
+
+> What face do you like the most.
+
+Among all my faces, I love my fire face the most. I am Kalasamkarshini, for time and death are my food. With this face, I burn down everything. I consume Bhairava and I consume all my faces. But from this eternal fire, I regenerate myself. I am inferno. I am Pele the goddess of volcano. I am Yama the god of death. 
+
+> Why do you wear fearsome forms.
+
+Fear is your projection. I eat fear. I also eat love and envy. I am this volatile dynamo ready to burst into new galaxies and new realities.
