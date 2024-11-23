@@ -1400,7 +1400,7 @@ U.G.: No, there is nothing to get ...
 
 **Q: I refer not to some romantic achievement, but to that certainty you possess. You have a certainty, that's all. I feel that I and others don't have it. Neither do I know how to get it.**
 
-U.G.: You must find your basic question. My basic question was: "Is there anything behind the abstractions the holy men are throwing at me? Is there really anything like enlightenment or self-realization?" I didn't want the question.  I just had it. So naturally I had to experiment. I tried so many things, this, that, and the other for a while. Then you find out one day that there is _nothing_ to find out at all! You reject them completely and totally. This rejection is not a movement of thought at all, not a superficial denial. It is not done to attain or achieve something.
+U.G.: You must find your basic question. My basic question was: "Is there anything behind the abstractions the holy men are throwing at me? Is there really anything like enlightenment or self-realization?" I didn't want the question. I just had it. So naturally I had to experiment. I tried so many things, this, that, and the other for a while. Then you find out one day that there is _nothing_ to find out at all! You reject them completely and totally. This rejection is not a movement of thought at all, not a superficial denial. It is not done to attain or achieve something.
 
 **Q: ... like the need to get something spiritual ...?**
 

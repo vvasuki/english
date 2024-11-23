@@ -159,7 +159,7 @@ A hot shower in a warm tub is one hell of an experience. Now that one has been f
 
 "I torture you to take the torture out of me," says Bob, acting out a scene from a 1936 Hollywood film titled, "The Raven." The line says it all.
 
-Later in the evening, Scott and I go into Gstaad to have our daily coffee and tea. I give him William Styron's latest book, A Tidewater Morning.  Styron is a great writer. I just love his writing. Today the streets of Gstaad look deserted. The Swiss Open tennis mach has ended. Scott mentions seeing some American actor here in this very restaurant earlier this morning. "Which American actor?" I ask. He struggles, but cannot remember his name. He looks pathetic. "God, this is what chronic fatigue syndrome does to your brain. The name is there in my head, but I can't bring it out," says Scott, giving up.
+Later in the evening, Scott and I go into Gstaad to have our daily coffee and tea. I give him William Styron's latest book, A Tidewater Morning. Styron is a great writer. I just love his writing. Today the streets of Gstaad look deserted. The Swiss Open tennis mach has ended. Scott mentions seeing some American actor here in this very restaurant earlier this morning. "Which American actor?" I ask. He struggles, but cannot remember his name. He looks pathetic. "God, this is what chronic fatigue syndrome does to your brain. The name is there in my head, but I can't bring it out," says Scott, giving up.
 
 The night is unusual.
 

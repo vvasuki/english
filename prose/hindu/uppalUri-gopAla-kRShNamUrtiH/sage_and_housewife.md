@@ -175,7 +175,7 @@ One day, just after a picnic with my family, I went to visit U.G. at his place a
 
 Soon I was in U.G.'s kitchen trying my hand at the culinary art. But my efforts met with failure: the moong dahl refused to cook properly. But soon a very thankful sounding U.G. was gobbling it all up, praising it to the skies!
 
-We spent the rest of that evening quietly watching TV.  He was more polite and friendly than usual. But later, on my way home, happy as a lark with the overall success and amiability of the visit, it occurred to me that, knowing U.G.'s unpredictability, the fair weather could turn foul at the slightest gust.
+We spent the rest of that evening quietly watching TV. He was more polite and friendly than usual. But later, on my way home, happy as a lark with the overall success and amiability of the visit, it occurred to me that, knowing U.G.'s unpredictability, the fair weather could turn foul at the slightest gust.
 
 The very next day, fortified with more knowledge on the correct method of cooking _rasam,_ I returned to U.G. and his sweat shop. But cooking _rasam_ for U.G. is no snap. You are forbidden the use of most of the usual ingredients like _rasam_ powder or tamarind. The only vegetable worth calling a vegetable is, according to U.G., the tomato, and none other is allowed in his kitchen. Running up the stairs, bowl in hand, I offered him a taste of my creation.
 

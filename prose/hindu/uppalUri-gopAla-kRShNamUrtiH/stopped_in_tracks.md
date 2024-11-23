@@ -800,7 +800,7 @@ That was how Dr. Desiraju, the veritable Nachiketa, provoked and persuaded U.G. 
 
 \*\*\*
 
- 
+
 
 **8.**
 
@@ -1176,7 +1176,7 @@ Later U.G. said, "The girl developed an attachment for me. That's not healthy. I
 
 ##### **Swami Poornananda Tirtha:**
 
-It was in March 1986. That being a Sunday I didn't have to go to work. I went up to U.G.'s flat early in the morning.   Around 10 o'clock, Swami Poornananda Tirtha showed up at the gate parking his car on the side of the narrow road. We all addressed him as 'Swamiji' even after he renounced his _sannyasa_ and became a householder.
+It was in March 1986. That being a Sunday I didn't have to go to work. I went up to U.G.'s flat early in the morning. Around 10 o'clock, Swami Poornananda Tirtha showed up at the gate parking his car on the side of the narrow road. We all addressed him as 'Swamiji' even after he renounced his _sannyasa_ and became a householder.
 
 During the early sixties, when he was delivering lectures on Vedanta in the city, people thronged in thousands to hear him speak. He was well known for his revolutionary ideas in the spiritual field. He always stressed on the practical aspects of Vedanta and ridiculed the traditional ritualistic approach in attaining self-realization. He had a huge _ashram_ in the Kerala State from where he hailed. Every year he would visit Bangalore where his followers would arrange his lecture series. He encouraged some of our friends like Dr. H. R. Nagendra, Professor Satyanarayana Sastri, Srikantaiah, Anantaram and others to form a spiritual group called 'Jnana Sadhana Sangha'.
 
@@ -1201,7 +1201,7 @@ From that day Swamiji always came to see U.G. whenever U.G. happened to be in Ba
 ![horizontal rule](_themes/expeditn/exphorsa.gif)
 
 
- 
+
 
 1\. The young boy in the Katha Upanishad who wanted to know the secrets of life and death from the God of Death, Yama.
 
@@ -1213,7 +1213,7 @@ From that day Swamiji always came to see U.G. whenever U.G. happened to be in Ba
 
 5\. "Sankara, Ramanuja and Madhva were the three Acharyas \[teachers\] who founded three separate religious traditions, one after another. Each of them wrote commentaries on the three Books of Vedanta \[Upanishads, Bhagavad Gita, and Brahma Sutras\] in support of their own traditions. They condemned one another's tradition. "My hats off to them for performing such an unparalleled feat," says U.G.
 
-6\. All the Brahmins who run the Udipi Restaurants are from the Madhva tradition. 
+6\. All the Brahmins who run the Udipi Restaurants are from the Madhva tradition.
 
 ![horizontal rule](_themes/expeditn/exphorsa.gif)
 
@@ -1451,7 +1451,7 @@ Valentine was never concerned about the rumors that speculated of a relationship
 
 U.G. has said that there can be true relationship between men and women only when there is no sexual involvement. In our experience it seems only the relationship between a mother and her children is such a pure relationship. Many believe that the relationship between Valentine and U.G. was such.
 
-When U.G.'s life was taking a crucial turn, Valentine entered the scene and stood as his support. However, she always knew clearly that U.G. had no need of her, and she knew that at any moment he was capable of dropping her and her money and going his own way. She led her life with U.G. in a precarious fashion, a life that could be described in India as: "Within every day lurks a danger, but you live till you're a hundred anyway," or living as if "wrestling standing on the edge of a knife." As soon as U.G. took her financial affairs into his own hands, she found no need to continue working at the Indian Consulate. U.G. directed her to sell all the gold she had in her possession, the antique art pieces she had inherited from her father, as well as other valuables, so as to convert these items into cash. He then arranged, on the basis of that cash, a fixed monthly income sufficient for Valentine's needs. In addition, she also received additional money in the form of a pension from her erstwhile job. With that limited income Valentine and U.G. financed their living in the Saanen area of the Alps mountains.
+When U.G.'s life was taking a crucial turn, Valentine entered the scene and stood as his support. However, she always knew clearly that U.G. had no need of her, and she knew that at any moment he was capable of dropping her and her money and going his own way. She led her life with U.G. in a precarious fashion, a life that could be described in India as:"Within every day lurks a danger, but you live till you're a hundred anyway," or living as if "wrestling standing on the edge of a knife." As soon as U.G. took her financial affairs into his own hands, she found no need to continue working at the Indian Consulate. U.G. directed her to sell all the gold she had in her possession, the antique art pieces she had inherited from her father, as well as other valuables, so as to convert these items into cash. He then arranged, on the basis of that cash, a fixed monthly income sufficient for Valentine's needs. In addition, she also received additional money in the form of a pension from her erstwhile job. With that limited income Valentine and U.G. financed their living in the Saanen area of the Alps mountains.
 
 U.G., when talking about the intermingling of their lives, has said: "Ever since she met me, Valentine has had no life of her own as such. She has pretty much led my life."
 

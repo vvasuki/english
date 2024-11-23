@@ -45,7 +45,7 @@ This book is a compilation of discussions between U.G. Krishnamurti and various 
 
 ### He Became U.G.
 
- 
+
 
 Be there  
 Light!  

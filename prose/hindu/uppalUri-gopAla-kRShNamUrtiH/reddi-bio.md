@@ -259,7 +259,7 @@ In the following chapters I have selected some of U.G.'s statements and attempte
 >
 > ##### ix. THE GENETIC DEGRADATION OF MODERN SOCIETY
 >
->  
+> 
 >
 > > _"We are Robots."_ **\-\- U.G.**
 >
@@ -537,7 +537,7 @@ In the following chapters I have selected some of U.G.'s statements and attempte
 >
 > A powerful awareness lies dormant in these discoveries, an awareness of the hitherto unsuspected power of the "mind" (brain) to mold "reality", rather than the other way around. If Buddhism is the philosophy of enlightenment, then the philosophy of physics is becoming indistinguishable from it.
 >
-> >  
+> > 
 > >
 > > _"There is no world out there except via concepts."_ **\-\- U.G.**
 >

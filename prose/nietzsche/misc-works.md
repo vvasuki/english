@@ -33,7 +33,7 @@ Navigation and About
 
 ### A-Z Index
 
--A- | -B- | -C- |  -D- | -H- | -M- | -O- | -R- | -S- | -T- | -U- | -W- 
+-A-|-B-|-C-| -D-|-H-|-M-|-O-|-R-|-S-|-T-|-U-|-W- 
 
 Antichrist  
 Beyond Good and Evil  
@@ -56,7 +56,7 @@ We Philologists
 
 \_\_\_\_\_\_\_\_
 
-Go to top | Go to TOC
+Go to top|Go to TOC
 
 
 
@@ -820,7 +820,7 @@ However, the fact that this effect is necessary each man will experience most su
 
 \_\_\_\_\_\_\_\_
 
-**The End** | Go to top
+**The End**|Go to top
 
 
 
@@ -1463,7 +1463,7 @@ I entertain the fear that the effects of Wagner's art will ultimately pour into 
 
 \_\_\_\_\_\_\_\_
 
-**The End** | Go to top
+**The End**|Go to top
 
 
 
@@ -1491,21 +1491,21 @@ Whilst philology as a whole is looked on with jealous eyes by these two classes 
 
 Science has this in common with art, that the most ordinary, everyday thing appears to it as something entirely new and attractive, as if metamorphosed by witchcraft and now seen for the first time. Life is worth living, says art, the beautiful temptress; life is worth knowing, says science. With this contrast the so heartrending and dogmatic tradition follows in a theory, and consequently in the practice of classical philology derived from this theory. We may consider antiquity from a scientific point of view; we may try to look at what has happened with the eye of a historian, or to arrange and compare the linguistic forms of ancient masterpieces, to bring them at all events under a morphological law; but we always lose the wonderful creative force, the real fragrance, of the atmosphere of antiquity; we forget that passionate emotion which instinctively drove our meditation and enjoyment back to the Greeks. From this point onwards we must take notice of a clearly determined and very surprising antagonism which philology has great cause to regret. From the circles upon whose help we must place the most implicit reliance-the artistic friends of antiquity, the warm supporters of Hellenic beauty and noble simplicity-we hear harsh voices crying out that it is precisely the philologists themselves who are the real opponents and destroyers of the ideals of antiquity. Schiller upbraided the philologists with having scattered Homer's laurel crown to the winds. It was none other than Goethe who, in early life a supporter of Wolf's theories regarding Homer, recanted in the verses-
 With subtle wit you took away
- 
+
 Our former adoration:
- 
+
 The Iliad, you may us say,
- 
+
 Was mere conglomeration.
- 
+
 Think it not crime in any way:
- 
+
 Youth's fervent adoration
- 
+
 Leads us to know the verity,
- 
+
 And feel the poet's unity.
- 
+
 
 The reason of this want of piety and reverence must lie deeper; and many are in doubt as to whether philologists are lacking in artistic capacity and impressions, so that they are unable to do justice to the ideal, or whether the spirit of negation has become a destructive and iconoclastic principle of theirs. When, however, even the friends of antiquity, possessed of such doubts and hesitations, point to our present classical philology as something questionable, what influence may we not ascribe to the outbursts of the "realists" and the claptrap of the heroes of the passing hour? To answer the latter on this occasion, especially when we consider the nature of the present assembly, would be highly injudicious; at any rate, if I do not wish to meet with the fate of that sophist who, when in Sparta, publicly undertook to praise and defend Herakles, when he was interrupted with the query: "But who then has found fault with him?" I cannot help thinking, however, that some of these scruples are still sounding in the ears of not a few in this gathering; for they may still be frequently heard from the lips of noble and artistically gifted men-as even an upright philologist must feel them, and feel them most painfully, at moments when his spirits are downcast. For the single individual there is no deliverance from the dissensions referred to; but what we contend and inscribe on our banner is the fact that classical philology, as a whole, has nothing whatsoever to do with the quarrels and bickerings of its individual disciples. The entire scientific and artistic movement of this peculiar centaur is bent, though with cyclopic slowness, upon bridging over the gulf between the ideal antiquity--which is perhaps only the magnificent blossoming of the Teutonic longing for the south-and the real antiquity; and thus classical philology pursues only the final end of its own being, which is the fusing together of primarily hostile impulses that have only forcibly been brought together. Let us talk as we will about the unattainability of this goal, and even designate the goal itself as an illogical pretension-the aspiration for it is very real; and I should like to try to make it clear by an example that the most significant steps of classical philology never lead away from the ideal antiquity, but to it; and that, just when people are speaking unwarrantably of the overthrow of sacred shrines, new and more worthy altars are being erected. Let us then examine the so-called *Homeric question* from this standpoint, a question the most important problem of which Schiller called a scholastic barbarism.
 
@@ -1569,7 +1569,7 @@ It is time to close; yet before I do so a few words of a personal character must
 
 It is but right that a philologist should describe his end and the means to it in the short formula of a confession of faith; and let this be done in the saying of Seneca which I thus reverse-
 "*Philosophia facta est quae philologia fuit.*"
- 
+
 
 By this I wish to signify that all philological activities should be enclosed and surrounded by a philosophical view of things, in which everything individual and isolated is evaporated as something detestable, and in which great homogeneous views alone remain. Now, therefore, that I have enunciated my philological creed, I trust you will give me cause to hope that I shall no longer be a stranger among you: give me the assurance that in working with you towards this end I am worthily fulfilling the confidence with which the highest authorities of this community have honoured me.
 
@@ -1581,7 +1581,7 @@ Footnotes:
 
 \_\_\_\_\_\_\_\_
 
-**The End** | Go to top
+**The End**|Go to top
 
 
 
@@ -2660,7 +2660,7 @@ I have also left out the Indian holy men, who are an intermediate stage between 
 
 **215**
 
-*Music*. -- Music is, of and in itself, not so significant for our inner world, nor so profoundly exciting, that it can be said to count as the *immediate* language of feeling; but its primeval union with poetry has deposited so much symbolism into rhythmic movement, into the varying strength and volume of musical sounds, that we now *suppose*  it to speak directly *to* the  inner world  and to come *from* the inner world. Dramatic music becomes possible only when the tonal art has conquered an enormous domain of symbolic means, through song, opera and a hundred experiments in tone-painting. "Absolute music" is either form in itself, at a primitive stage of music in which sounds made in tempo and at varying volume gave pleasure as such, or symbolism of form speaking to the understanding without poetry after both arts had been united over a long course of evolution and the musical form had finally become entirely enmeshed in threads of feeling and concepts. Men who have remained behind in the evolution of music can understand in a purely formalistic way the same piece of music as the more advanced understand wholly symbolically. In itself, no music is profound or significant, it does not speak of the "will" or of the "thing-in-itself"; the intellect could suppose such a thing only in an age which had conquered for musical symbolism the entire compass of the inner life. It was the intellect itself which first *introduced* this significance into sounds: just as, in the case of architecture, it likewise introduced a significance into the relations between lines and masses which is in itself quite unknown to the laws of mechanics.
+*Music*. -- Music is, of and in itself, not so significant for our inner world, nor so profoundly exciting, that it can be said to count as the *immediate* language of feeling; but its primeval union with poetry has deposited so much symbolism into rhythmic movement, into the varying strength and volume of musical sounds, that we now *suppose* it to speak directly *to* the inner world and to come *from* the inner world. Dramatic music becomes possible only when the tonal art has conquered an enormous domain of symbolic means, through song, opera and a hundred experiments in tone-painting. "Absolute music" is either form in itself, at a primitive stage of music in which sounds made in tempo and at varying volume gave pleasure as such, or symbolism of form speaking to the understanding without poetry after both arts had been united over a long course of evolution and the musical form had finally become entirely enmeshed in threads of feeling and concepts. Men who have remained behind in the evolution of music can understand in a purely formalistic way the same piece of music as the more advanced understand wholly symbolically. In itself, no music is profound or significant, it does not speak of the "will" or of the "thing-in-itself"; the intellect could suppose such a thing only in an age which had conquered for musical symbolism the entire compass of the inner life. It was the intellect itself which first *introduced* this significance into sounds: just as, in the case of architecture, it likewise introduced a significance into the relations between lines and masses which is in itself quite unknown to the laws of mechanics.
 
 **216**
 
@@ -3228,7 +3228,7 @@ Women, on the other hand, speak like creatures who sat for thousands of years at
 
 **355**
 
-*Unrecognized honesty*. -- If  someone  quotes  himself  in  conversation  \("I used to say " "I always say "\), this gives the impression of arrogance, whereas it more often stems from precisely the opposite source, or at least from an honesty that does not wish to embellish or adorn the moment with ideas that belong to a previous moment.
+*Unrecognized honesty*. -- If someone quotes himself in conversation \("I used to say " "I always say "\), this gives the impression of arrogance, whereas it more often stems from precisely the opposite source, or at least from an honesty that does not wish to embellish or adorn the moment with ideas that belong to a previous moment.
 
 **356**
 
@@ -4847,7 +4847,7 @@ The Wanderer*: Do you know -- do I know? -- whether you would undergo a sudden c
 
 \_\_\_\_\_\_\_\_
 
-**The End** | Go to top
+**The End**|Go to top
 
 
 
@@ -4893,7 +4893,7 @@ There are ages in which the rational man and the intuitive man stand side by sid
 
 \_\_\_\_\_\_\_\_
 
-**The End** | Go to top
+**The End**|Go to top
 
 
 
@@ -5252,13 +5252,13 @@ But to the men of the future.
 
 This is the belief that is proper to him; this is his torment and his distinction. No artist, of what past soever, has yet received such a remarkable portion of genius; no one, save him, has ever been obliged to mix this bitterest of ingredients with the drink of nectar to which enthusiasm helped him. It is not as one might expect, the misunderstood and mishandled artist, the fugitive of his age, who adopted this faith in self-defence: success or failure at the hands of his contemporaries was unable either to create or to destroy it Whether it glorified or reviled him, he did not belong to this generation: that was the conclusion to which his instincts led him. And the possibility of any generation's ever belonging to him is something which he who disbelieves in Wagner can never be made to admit. But even this unbeliever may at least ask, what kind of generation it will be in which Wagner will recognise his "people," and in which he will see the type of all those who suffer a common distress, and who wish to escape from it by means of an art common to them all. Schiller was certainly more hopeful and sanguine; he did not ask what a future must be like if the instinct of the artist that predicts it prove true; his command to every artist was rather-
 Soar aloft in daring flight
- 
+
 Out of sight of thine own years\!
- 
+
 In thy mirror, gleaming bright,
- 
+
 Glimpse of distant dawn appears.
- 
+
 
 ### Chapter XI.
 
@@ -5276,7 +5276,7 @@ Where are the men among you who are able to interpret the divine image of Wotan 
 
 He who questions thus and does so in vain, will find himself compelled to look around him for signs of the future; and should his eye, on reaching an unknown distance, espy just that "people" which his own generation can read out of the signs contained in Wagnerian art, he will then also understand what Wagner will mean to this people-something that he cannot be to all of us, namely, not the prophet of the future, as perhaps he would fain appear to us, but the interpreter and clarifier of the past.
 
- 
+
 
 ### On the Use and Abuse of History for Life
 
@@ -5306,9 +5306,9 @@ Every one has noticed that a man's historical knowledge and range of feeling may
 
 Should any one be able to dissolve the unhistorical atmosphere in which every great event happens, and breathe afterwards, he might be capable of rising to the "super-historical" standpoint of consciousness, that Niebuhr has described as the possible result of historical research. "History," he says, "is useful for one purpose, if studied in detail: that men may know, as the greatest and best spirits of our generation do not know, the accidental nature of the forms in which they see and insist on others seeing,-insist, I say, because their consciousness of them is exceptionally intense. Any one who has not grasped this idea in its different applications will fall under the spell of a more powerful spirit who reads a deeper emotion into the given form." Such a standpoint might be called "super-historical," as one who took it could feel no impulse from history to any further life or work, for he would have recognised the blindness and injustice in the soul of the doer as a condition of every deed: he would be cured henceforth of taking history too seriously, and have learnt to answer the question how and why life should be lived, for all men and all circumstances, Greeks or Turks, the first century or the nineteenth. Whoever asks his friends whether they would live the last ten or twenty years over again, will easily see which of them is born for the "super-historical standpoint": they will all answer no, but will give different reasons for their answer. Some will say they have the consolation that the next twenty will be better: they are the men referred to satirically by David Hume:
 "And from the dregs of life hope to receive,
- 
+
 What the first sprightly running could not give."
- 
+
 
 We will call them the "historical men." Their vision of the past turns them towards the future, encourages them to persevere with life, and kindles the hope that justice will yet come and happiness is behind the mountain they are climbing. They believe that the meaning of existence will become ever clearer in the course of its evolution, they only look backward at the process to understand the present and stimulate their longing for the future. They do not know how unhistorical their thoughts and actions are in spite of all their history, and how their preoccupation with it is for the sake of life rather than mere science.
 
@@ -5444,13 +5444,13 @@ Our low comedian has his word on this too with his wonderful dialectic, which is
 
 When they are once understood, no one will take Hartmann's words on the world-process as anything but a joke. It is, as a fact, high time to move forward with the whole battalion of satire and malice against the excesses of the "historical sense," the wanton love of the world-process at the expense of life and existence, the blind confusion of all perspective. And it will be to the credit of the philosopher of the Unconscious that he has been the first to see the humour of the world-process, and to succeed in making others see it still more strongly by the extraordinary seriousness of his presentation. The existence of the "world" and "humanity" need not trouble us for some time, except to provide us with a good joke: for the presumption of the small earthworm is the most uproariously comic thing on the face of the earth. Ask thyself to what end thou art here, as an individual; and if no one can tell thee, try then to justify the meaning of thy existence *a posteriori*, by putting before thyself a high and noble end. Perish on that rock\! I know no better aim for life than to be broken on something great and impossible, *anima magnæ prodigus*. But if we have the doctrines of the finality of "becoming," of the flux of all ideas, types, and species, of the lack of all radical difference between man and beast \(a true but fatal idea as I think\),-if we have these thrust on the people in the usual mad way for another generation, no one need be surprised if that people drown on its little miserable shoals of egoism, and petrify in its self-seeking. At first it will fall asunder and cease to be a people. In its place perhaps individualist systems, secret societies for the extermination of non-members, and similar utilitarian creations, will appear on the theater of the future. Are we to continue to work for these creations and write history from the standpoint of the *masses*; to look for laws in it, to be deduced from the needs of the masses, the laws of motion of the lowest loam and clay strata of society? The masses seem to be worth notice in three aspects only: first as the copies of great men, printed on bad paper from worn-out plates, next as a contrast to the great men, and lastly as their tools: for the rest, let the devil and statistics fly away with them\! How could statistics prove that there are laws in history? Laws? Yes, they may prove how common and abominably uniform the masses are: and should we call the effects of leaden folly, imitation, love and hunger-laws? We may admit it: but we are sure of this too-that so far as there are laws in history, the laws are of no value and the history of no value either. And least valuable of all is that kind of history which takes the great popular movements as the most important events of the past, and regards the great men only as their clearest expression, the visible bubbles on the stream. Thus the masses have to produce the great man, chaos to bring forth order; and finally all the hymns are naturally sung to the teeming chaos. Everything is called "great" that has moved the masses for some long time, and becomes, as they say, a "historical power." But is not this really an intentional confusion of quantity and quality? When the brutish mob have found some idea, a religious idea for example, which satisfies them, when they have defended it through thick and thin for centuries; then, and then only, will they discover its inventor to have been a great man. The highest and noblest does not affect the masses at all. The historical consequences of Christianity, its "historical power," toughness and persistence prove nothing, fortunately, as to its founder's greatness. They would have been a witness against him. For between him and the historical success of Christianity lies a dark heavy weight of passion and error, lust of power and honour, and the crushing force of the Roman Empire. From this, Christianity had its earthly taste, and its earthly foundations too, that made its continuance in this world possible. Greatness should not depend on success. Demosthenes is great without it. The purest and noblest adherents of Christianity have always doubted and hindered, rather than helped, its effect in the world, its so-called "historical power"; for they were accustomed to stand outside the "world," and cared little for the "process of the Christian Idea." Hence they have generally remained unknown to history, and their very names are lost. In Christian terms, the devil is the prince of the world, and the lord of progress and consequence: he is the power behind all "historical power," and so will it remain, however ill it may sound today in ears that are accustomed to canonise such power and consequence. The world has become skilled at giving new names to things and even baptizing the devil. It is truly an hour of great danger. Men seem to be near the discovery that the egoism of individuals, groups or masses has been at all times the lever of the "historical movements": and yet they are in no way disturbed by the discovery, but proclaim that "egoism shall be our god." With this new faith in their hearts, they begin quite intentionally to build future history on egoism: though it must be a clever egoism, one that allows of some limitation, that it may stand firmer; one that studies history for the purpose of recognising the foolish kind of egoism. Their study has taught them that the state has a special mission in all future egoistic systems: it will be the patron of all the clever egoisms, to protect them with all the power of its military and police against the dangerous outbreaks of the other kind. There is the same idea in introducing history-natural as well as human history-among the labouring classes, whose folly makes them dangerous. For men know well that a grain of historical culture is able to break down the rough, blind instincts and desires, or to turn them to the service of a clever egoism. In fact they are beginning to think, with Edward von Hartmann, of "fixing themselves with an eye to the future in their earthly home, and making themselves comfortable there." Hartmann calls this life the "manhood of humanity" with an ironical reference to what is now called "manhood";-as if only our sober models of selfishness were embraced by it; just as he prophesies an age of graybeards following on this stage,-obviously another ironical glance at our ancient time-servers. For he speaks of the ripe discretion with which "they view all the stormy passions of their past life and understand the vanity of the ends they seem to have striven for." No, a manhood of crafty and historically cultured egoism corresponds to an old age that hangs to life with no dignity but a horrible tenacity, where the
 "last scene of all
- 
+
 That ends this strange eventful history,
- 
+
 Is second childishness and mere oblivion,
- 
+
 Sans teeth, sans eyes, sans taste, sans everything."
- 
+
 
 Whether the dangers of our life and culture come from these dreary, toothless old men, or from the so-called "men" of Hartmann, we have the right to defend our youth with tooth and claw against both of them, and never tire of saving the future from these false prophets. But in this battle we shall discover an unpleasant truth-that men intentionally help, and encourage, and use, the worst aberrations of the historical sense from which the present time suffers.
 
@@ -5569,11 +5569,11 @@ There are three Images of Man fashioned by our modern time, which for a long whi
 
 Goethe's man is no such threatening force; in a certain sense he is a corrective and a sedative to those dangerous agitations of which Rousseau's man is a prey. Goethe himself in his youth followed the "gospel of kindly Nature" with all the ardour of his soul: his Faust was the highest and boldest picture of Rousseau's man, so far at any rate as his hunger for life, his discontent and yearning, his intercourse with the demons of the heart could be represented. But what comes from these congregated storm-clouds? Not a single lightning flash\! And here begins the new Image of man the man according to Goethe. One might have thought that Faust would have lived a continual life of suffering, as a revolutionary and a deliverer, as the negative force that proceeds from goodness, as the genius of ruin, alike religious and daemonic, in opposition to his utterly un-daemonic companion; though of course he could not be free of this companion, and had at once to use and despise his evil and destructive scepticism-which is the tragic destiny of all revolutionary deliverers. One is wrong, however, to expect anything of the sort: Goethe's man here parts company with Rousseau's; for he hates all violence, all sudden transition that is, all action: and the universal deliverer becomes merely the universal traveller. All the riches of life and nature, all antiquity-arts, mythologies and sciences-pass before his eager eyes, his deepest desires are aroused and satisfied, Helen herself can hold him no more and the moment must come for which his mocking companion is waiting. At a fair spot on the earth, his flight comes to an end: his pinions drop, and Mephistopheles is at his side. When the German ceases to be Faust, there is no danger greater than of becoming a Philistine and falling into the hands of the devil-heavenly powers alone can save him. Goethe's man is, as I said, the contemplative man in the grand style, who is only kept from dying of ennui by feeding on all the great and memorable things that have ever existed, and by living from desire to desire. He is not the active man; and when he does take a place among active men, as things are, you may be sure that no good will come of it \(think, for example, of the zeal with which Goethe wrote for the stage\!\); and further, you may be sure that "things as they are" will suffer no change. Goethe's man is a conciliatory and conservative spirit, though in danger of degenerating into a Philistine, just as Rousseau's man may easily become a Catiline. All his virtues would be the better by the addition of a little brute force and elemental passion. Goethe appears to have seen where the weakness and danger of his creation lay, as is clear from Jarno's word to Wilhelm Meister: "You are bitter and ill-tempered-which is quite an excellent thing: if you could once become really angry, it would be still better." To speak plainly, it is necessary to become really angry in order that things may be better. The picture of Schopenhauer's man can help us here. *Schopenhauer's man voluntarily takes upon himself the pain of telling the truth*: this pain serves to quench his individual will and make him ready for the complete transformation of his being, which it is the inner meaning of life to realise. This openness in him appears to other men to be an effect of malice, for they think the preservation of their shifts and pretences to be the first duty of humanity, and any one who destroys their playthings to be merely malicious. They are tempted to cry out to such a man, in \[\[Faust|Faust's\] words to Mephistopheles:-
 "So to the active and eternal
- 
+
 Creative force, in cold disdain
- 
+
 You now oppose the fist infernal"-
- 
+
 
 and he who would live according to Schopenhauer would seem to be more like a Mephistopheles than a Faust-that is, to our weak modern eyes, which always discover signs of malice in any negation. But there is a kind of denial and destruction that is the effect of that strong aspiration after holiness and deliverance, which Schopenhauer was the first philosopher to teach our profane and worldly generation. Everything that can be denied, deserves to be denied; and real sincerity means the belief in a state of things which cannot be denied, or in which there is no lie. The sincere man feels that his activity has a metaphysical meaning. It can only be explained by the laws of a different and a higher life; it is in the deepest sense an affirmation: even if everything that he does seem utterly opposed to the laws of our present life. It must lead therefore to constant suffering; but he knows, as Meister Eckhard did, that "the quickest beast that will carry you to perfection is suffering." Every one, I should think, who has such an ideal before him, must feel a wider sympathy; and he will have a burning desire to become a "Schopenhauer man";-pure and wonderfully patient, on his intellectual side full of a devouring fire, and far removed from the cold and contemptuous "neutrality" of the so-called scientific man; so high above any warped and morose outlook on life as to offer himself as the first victim of the truth he has won, with a deep consciousness of the sufferings that must spring from his sincerity. His courage will destroy his happiness on earth, he must be an enemy to the men he loves and the institutions in which he grew up, he must spare neither person nor thing, however it may hurt him, he will be misunderstood and thought an ally of forces that he abhors, in his search for righteousness he will seem unrighteous by human standards: but he must comfort himself with the words that his teacher Schopenhauer once used: "A happy life is impossible, the highest thing that man can aspire to is a *heroic* life; such as a man lives, who is always fighting against unequal odds for the good of others; and wins in the end without any thanks. After the battle is over, he stands like the Prince in the *re corvo* of Gozzi, with dignity and nobility in his eyes, but turned to stone. His memory remains, and will be reverenced as a hero's; his will, that has been mortified all his life by toiling and struggling, by evil payment and ingratitude, is absorbed into Nirvana." Such a heroic life, with its full "mortification"-corresponds very little to the paltry ideas of the people who talk most about it, and make festivals in memory of great men, in the belief that a great man is great in the sense that they are small, either through exercise of his gifts to please himself or by a blind mechanical obedience to this inner force; so that the man who does not possess the gift or feel the compulsion has the same right to be small as the other to be great. But "gift" and "compulsion" are contemptible words, mere means of escape from an inner voice, a slander on him who has listened to the voice-the great man; he least of all will allow himself to be given or compelled to anything: for he knows as well as any smaller man how easily life can be taken and how soft the bed whereon he might lie if he went the pleasant and conventional way with himself and his fellow-creatures: all the regulations of mankind are turned to the end that the intense feeling of life may be lost in continual distractions. Now why will he so strongly choose the opposite, and try to feel life, which is the same as to suffer from life? Because he sees that men will tempt him to betray himself, and that there is a kind of agreement to draw him from his den. He will prick up his ears and gather himself together, and say, "I will remain mine own." He gradually comes to understand what a fearful decision it is. For he must go down into the depths of being, with a string of curious questions on his lips-"Why am I alive? what lesson have I to learn from life? how have I become what I am, and why do I suffer in this existence?" He is troubled, and sees that no one is troubled in the same way; but rather that the hands of his fellow-men are passionately stretched out towards the fantastic drama of the political theatre, or they themselves are treading the boards under many disguises, youths, men and graybeards, fathers, citizens, priests, merchants and officials,-busy with the comedy they are all playing, and never thinking of their own selves. To the question "To what end dost thou live?" they would all immediately answer, with pride, "To *become* a good citizen or professor or statesman,"-and yet they *are* something which can never be changed: and why are they just-this? Ah, and why nothing better? The man who only regards his life as a moment in the evolution of a race or a state or a science, and will belong merely to a history of "becoming," has not understood the lesson of existence, and must learn it over again. This eternal "becoming something" is a lying puppet-show, in which man has forgot himself; it is the force that scatters individuality to the four winds, the eternal childish game that the big baby time is playing in front of us-and with us. The heroism of sincerity lies in ceasing to be the plaything of time. Everything in the process of "becoming" is a hollow sham, contemptible and shallow: man can only find the solution of his riddle in "being" something definite and unchangeable. He begins to test how deep both "becoming" and "being" are rooted in him-and a fearful task is before his soul; to destroy the first, and bring all the falsity of things to the light. He wishes to know everything, not to feed a delicate taste, like Goethe's man, to take delight, from a safe place, in the multiplicity of existence: but he himself is the first sacrifice that he brings. The heroic man does not think of his happiness or misery, his virtues or his vices, or of his being the measure of things; he has no further hopes of himself and will accept the utter consequences of his hopelessness. His strength lies in his self-forgetfulness: if he have a thought for himself, it is only to measure the vast distance between himself and his aim, and to view what he has left behind him as so much dross. The old philosophers sought for happiness and truth, with all their strength: and there is an evil principle in nature that not one shall find that which he cannot help seeking. But the man who looks for a lie in everything, and becomes a willing friend to unhappiness, shall have a marvellous disillusioning: there hovers near him something unutterable, of which truth and happiness are but idolatrous images born of the night; the earth loses her dragging weight, the events and powers of earth become as a dream, and a gradual clearness widens round him like a summer evening. It is as though the beholder of these things began to wake, and it had only been the clouds of a passing dream that had been weaving about him. They will at some time disappear: and then will it be day.
 
@@ -5703,7 +5703,7 @@ Schopenhauer proved this and will continue to prove it, more and more.
 
 \_\_\_\_\_\_\_\_
 
-**The End** | Go to top
+**The End**|Go to top
 
 
 
@@ -6840,7 +6840,7 @@ FOOTNOTES:
 
 \_\_\_\_\_\_\_\_
 
-**The End** | Go to top
+**The End**|Go to top
 
 
 
