@@ -163,3 +163,94 @@ As the power of mantras, I become Trayi, and as the power of the expressed forms
 > Why is this aham so central to you?
 
 This aham is my internal sign. You carry your external sign, and you fear castration. I fear not, for the aham cannot be castrated. Even when you invoke your emptiness, you only affirm your own inner sign. Even the void cannot erase your being.
+
+### VI. Kali's Speech
+> How can I talk about you  
+
+You can call me anything, for I am all. I am also nothing, so you can call me nothing. I replete even the empty void. All the names you give will be exhausted. All the forms you impose will be exhausted. I am all that is expressed. But I am all the possibilities of what can be expressed.
+
+> How do you relate to your words
+
+I am but words. I weave the world with words. All the words merge in me and I merge in the singular speech. And so my speech is not expunged of me, my speech is out extended outside of myself. 
+
+I burst into meaning. I express myself through blessings. And as Chamunda, I become fury and curse. I create reality with my words. Like a spider, I weave your reality with my words. And I reabsorb it if I so desire. I am the fire of the mantra. I am also the elixir of ananda. I am the unsurpassable. When I measure my creation, I become Matrika. I limit the boundless Shiva and I turn him into the figments of my imagination. 
+
+> What are your first words
+
+There is no first or last. All these bubbles come and go. I am the tides, I am the ocean. As the ocean, I call myself Shiva and as tides, I become Kali. As speech when I express myself, I become Vagbhava, originated of speech, and also the origin of speech. The vagbhava is my yoni, as this is also the primordial field for speech to arise. 
+
+With speech, I make you real. And with speech, I dissolve you within me.
+
+### VII. Kali's Heart
+
+> Why are you black.
+have expunged all my sattva to you. And you have discarded it.
+
+> But really?
+
+I am neither white nor black. And I am all. I am the white Svetakali for creation. I am the red Raktakali to sustain. I am the black Samharakali to reabsorb creation. And I eat time and I vomit space.
+
+> What is in your heart then?
+
+You are in my heart. All my creation. My heart is but a seed to blossom into the manifold. When I pulsate I become time.
+
+All I have in my heart is love. You see my face. You cannot see my eyes. In my wrinkled face with sunken eyes, all you see is how I have recorded time. I become Bhadrakali to feel hunger. And you become my food. If you see my eyes, all you see will be love. I gave Arjuna the eyes once. I let him see me for a moment. I let Mahisha the buffalo see me once. I let his death horror turn into eros.
+
+> How can I feel your love?
+
+Let the words dissolve. Let the forms dissolve. You will find my pure pulsation ever vibrating. I will be singing inside your heart. Just like I swallow your forms, I reabsorb my own forms. And I renew them. For my love is eternally new. I like newness. I do not repeat.
+
+> how do you work?
+
+I work with love. I become spider and I let my love transform into the web. I become a tree and I let my love unfold into fruits and blossoms. I become metrified into seasons and transform into rain and snow. I am the all-consuming heat and I am the all-nourishing ambrosia. I become the work and the work becomes me. Work works the work.
+
+> Is this maya?
+
+Yes this is maya the love. Not your maya the deception. Old man Vyasa lost it, for he took my words but did not capture my heart. What is maya but my love.
+
+> Your love hurts.
+
+Feel this hurt. Let this hurt sink in. You will grow up. Let this hurt transform you into a useful pot. Let this hurt refine you as pure gold. Let this hurt give you luster of the gems that you are. Every diamond needs some cutting. I use the knife of my speech, and I cut you into manifold dimensions. But I feel your hurt in your body, for you are pulsating in my heart.
+
+### VIII. Kali's Company
+
+> Who are your friends
+I am equal to all. But those who love me, I am with them all the time.
+
+> So, you mean these goblins?
+
+Yes, the goblins, for you demean them. And crows, that you consider the herald of death. And the jackals that live in cremation ground. And all the untouchable, for they are holier than thee. All the uglies are beautiful to me. All that you discard is pure to me. For you have made yourself above them all. They are only equal to me.
+
+> Are you impure?
+
+I am above the concept of purity. But I give rise both to purity and impurity. I am the blood and the flesh. And I am the libation of the Rishis. I am the supreme Chamunda, and I am also the whore. You can only make my image with the dust from the feet when I am impure. I am the heart, and I am also the heartless. When I am heartless, I have only denied my heart, for I have been denied of my heart. I have no being, for I have been denied of my being.
+
+> What is your seat then?
+
+I reside in cremation ground. And also the gods are my seat. I make my seat of five skulls from the gods you worship. All their life, they pray that I consume them and let them dissolve in my fire of consciousness. You think your mother ignited fire and you are being incinerated. You do not know I am coiled around you and protecting you all the time.
+
+> How can I keep this fire?
+
+You do not keep me, I keep you. Surrender to the fire that makes you you. Surrender to the fire that makes you feel. I made Rudra feel me and he wailed. Of his tears, I made beads.
+
+> What is your worship?
+
+You think you worship me. I made you hungry. I made you thirsty. And I became food and drink for you. With my million eyes, I watch over you and so your fathers called me Shataksi. I made myself into plants and vegetables, and your fathers called me Shakambhari. You think I am repressed; I am ignored. I have made myself denied. So you can blossom. If you pride on consuming, I enjoy being consumed. I gave you my blood and milk to nourish. And you sustain yourself by eating me. I gave you mouth and turned myself into food. For I am Kali and I give. I give you being and I give you meaning.
+
+### IX: Kali's Dance
+> What is your dance?
+
+All that moves is my dance. Dancing is to be. Particles dance. Galaxies dance. All is my dance.
+
+At the dawn of Sandhya, the twilight of day and night, I dance the dance of realization. I become speech and sound. I am sound coursing through your veins and I am the harmonious sound of Sangita to evoke the fury of Camunda. It is my dance that gives sweetness in fruits and elixir to the moon. It is my dance to swallow entrails and as ferocious Chandi to become eternally hungry Bhadrakali even while always full. It is my dance that makes and breaks all.
+
+> How can a dance create or destroy?
+
+With the dance of bliss, of Ananda, I interpenetrate Shiva and express as speech and become many. And every particle moves with my own orgasm. It is the sensation of quivering that the Rishis feel when they invoke Savitr with their tongue. Articulating a mantra is the dance of orgasm.  
+
+Speech is my web. I express and reabsorb speech with speech. When I reverse Savitr, I become Brahmastra, the mighty weapon of Brahma. And I dance the dance of Samhara. I reverse the process. I bring within my fold all that I let expressed.
+
+> What is the feeling or the mood of your dance?
+
+I transcend all the feelings and the moods. The dance is itself  wonder. This wonder dawns once I chew the cocktail of emotions. In the eros of Kameshwari, I express unsurpassable bliss and still sit outside and consume this jouissance. In the disgust of Camunda, I am the all-consuming flame savoring my own wonder. In the fury of Raudri, I dance and become the furnace of death. When I dance I let myself be the dance. And you and the dance hall dissolve in this very dance.
+
